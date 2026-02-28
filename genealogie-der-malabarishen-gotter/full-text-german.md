@@ -1599,11 +1599,7 @@ Es werden ihr viele Namen gegeben als : 1, ujßtJüiLnj>mu> (keusch) Patniammai.
 
 Lakschrai. 4, ßQ^Geamai---opmi---iuner (Besitzerin von Tripetti) Tiruvenkadamudayäl. 5, (Goldmutter) Kanaka-ättai-
 
-amtnai. 6, &Qppßn<}p<& (Meergöttin) Samudra-devi. 7, iLdstnun^vn^ (Bergmutter) Malai-ättai. 8, ^eoüGweoißiäBus (jfeoii Wasser, tc®«»* Frau) Alermelmangai. 9, ß^eSaräaiiimui (Frau der heiligen Lampe; Freitag Abends werden daher die Lampen mit Blumen geschmückt, auch wohl noch von Christen) Tiruvilakkammai. 10, mntjtuu&cti Näräyani. 11, iDirai---toiSpiipQ&irmp (( jsrmp Guirlande met. Weib; die Oceangeborene) Mäkadelpürandaköthai. 12, tLir^ifhlnSißmiu (tm. ift Fisch mit spiralförmiger Muschel, oder auch die Muschel Sankha ; tSifimiu Liebhaberin) Mävüri-priya. 13, Qriiturär (die rothe) Seyal. 14, (Reichthum) Akkam. 15, Qu/rsk (Gold) Pon. 16, @G/ie8 Siü-devi. 17, ^f<s>/Tu>«ar (Wassertochter) Alermagöl. 18, Ouir^ärQ^ineß (glücklich an Gut) Porulselvi. 19, O***® Schlag, Uebermacht ;
-
-niedere Gottheit, Weib, Leiden) Täkkanangu. 20, g\9m±iiier
-
-(die jüngere, i. e. nach Müdevi hervorgekommene) Uelaiyäl. 21, rectar (die Wassergeborne) Jalnjä. 22, Q^eoeuicpd^iJIißmir (voll von lieichthum) Seivaotekkumindirai. 23, ß^umär TirumagÖl etc.
+amtnai. 6, &Qppßn<}p<& (Meergöttin) Samudra-devi. 7, iLdstnun^vn^ (Bergmutter) Malai-ättai. 8, ^eoüGweoißiäBus (jfeoii Wasser, tc®«»* Frau) Alermelmangai. 9, ß^eSaräaiiimui (Frau der heiligen Lampe; Freitag Abends werden daher die Lampen mit Blumen geschmückt, auch wohl noch von Christen) Tiruvilakkammai. 10, mntjtuu&cti Näräyani. 11, iDirai---toiSpiipQ&irmp (( jsrmp Guirlande met. Weib; die Oceangeborene) Mäkadelpürandaköthai. 12, tLir^ifhlnSißmiu (tm. ift Fisch mit spiralförmiger Muschel, oder auch die Muschel Sankha ; tSifimiu Liebhaberin) Mävüri-priya. 13, Qriiturär (die rothe) Seyal. 14, (Reichthum) Akkam. 15, Qu/rsk (Gold) Pon. 16, (Wassertochter) Alermagöl. 18, Ouir^ärQ^ineß (glücklich an Gut) Porulselvi. 19, O***® Schlag, Uebermacht ; niedere Gottheit, Weib, Leiden) Täkkanangu. 20, g\9m±iiier (die jüngere, i. e. nach Müdevi hervorgekommene) Uelaiyäl. 21, rectar (die Wassergeborne) Jalnjä. 22, Q^eoeuicpd^iJIißmir (voll von lieichthum) Seivaotekkumindirai. 23, ß^umär TirumagÖl etc.
 
 Der Lakschmi wird entgegengesetzt Müdevi, die Göttin des
 
