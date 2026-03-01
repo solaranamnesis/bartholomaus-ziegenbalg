@@ -150,13 +150,13 @@ B\. _மும்மூா்த்திகள் Mummūrtigel die drei grösst
 
 1\. Seine Weiber, deren zwei sind:
 
-a. ueirsvß (uiaipiä Berg, die Berggeborene) Parvati, welche für die obengedachte Sakti anzusehen ist und in Isvara's Pagoden unter mancherlei Namen verehrt wird, auch ihre gewissen Festund Fasttage hat.
+a\. _பாா்வதி (பா்வதம் Berg, die Berggeborene) Pārvati_, welche für die obengedachte Sakti anzusehen ist und in Isvara's Pagoden unter mancherlei Namen verehrt wird, auch ihre gewissen Fest- und Fasttage hat.
 
-b. «jdbdä Ganga (vgl. das deutsche Gang), welche eine Göttin des Wassers ist und wie eine Sirene, halb Weib halb Fisch, abgebildet wird. Ihre Figur steht in keiner Pagode, eie wird aber dadurch verehrt, dass die Menschen sich allenthalben in Flüssen waschen und dabei ihre Anbetung tbun. Unter dem Wort Ganga werden alle Flüsse verstanden, besonders aber der grosse Ganges, dessen Wasser für das allerheiligste zur Sündenreinigung gehalten wird. Diese Ganga hat acht Jungfrauen zu ihren Gespielinnen, welches gleichfalls 8 Flüsse sind als tu<y>&t r Yamuna, ^ns-aiß Sarasvati, s Sindhu d. i. Indus, /r©u>«o^ Nerbudda, Gsteirouf) Gödävery, sscanfi KävSry, werCar^ (?) Mannery, särtSas Kanya oder Kumari (Jungfrau, nahe bei Cap Comorin).*
+b\. _கங்கை Ganga_ (vgl. das deutsche Gang), welche eine Göttin des Wassers ist und wie eine Sirene, halb Weib halb Fisch, abgebildet wird. Ihre Figur steht in keiner Pagode, sie wird aber dadurch verehrt, dass die Menschen sich allenthalben in Flüssen waschen und dabei ihre Anbetung tun. Unter dem Wort Ganga werden alle Flüsse verstanden, besonders aber der grosse Ganges, dessen Wasser für das allerheiligste zur Sündenreinigung gehalten wird. Diese Ganga hat acht Jungfrauen zu ihren Gespielinnen, welches gleichfalls 8 Flüsse sind als யமுனை Yamuna, சரசுவதி Sarasvati, சிந்து Sindhu d. i. Indus, நருமதை Nerbudda, கோதாவாி Gōdāvery, காவோி Kāvēry, மன்னேறி (?) Mannēry, கன்னிகை Kanya oder குமாி Kumari (Jungfrau, nahe bei Cap Comorin).*
 
-* Gewöhnlich werden nur 7 heiligtte Flüsse aufgezählt, an deren Spitze der Gange* selbst steht, es fallen dann fort der Indus und jener Mannüry, an dessen Statt vielleicht auch im Text s«4/u ® me Tsmrabami, der heilige Fluss Tinnevelly's, zu setzen ist, eine Lesart, welche auch die Saiva Samaya Vinavidai von Foulkes an die Hand giebt.
+*) Gewöhnlich werden nur 7 heiligste Flüsse aufgezählt, an deren Spitze der Ganges selbst steht, es fallen dann fort der Indus und jener Mannēry, an dessen Statt vielleicht auch im Text தாமிாபருணி Tāmrabarni, der heilige Fluss Tinnevelly's, zu setzen ist, eine Lesart, welche auch die Saiva Samaya Vināvidai von Foulkes an die Hand giebt.
 
-2. Seine Söhne, deren eigentlich zwei sind als :
+2\. Seine Söhne, deren eigentlich zwei sind als :
 
 a. eSsiScita-aar ( eSiSnüt Hinderniss, der alle Hindernisse Entfernende) Vighnesvara der mit einem ElephantenRüssel abgebildet wird und viele Pagoden, auch viele Namen hat als sä/siriusar (sä gross, virvaär Herr) Vinäyaka, iSorSwiuir/f (das erlauchte Kind) Püllaiyär, avaruß ( uß Herr, *««u> Schaar, Truppe sc. der Götter) Ganapati. Seine Figur steht überall an den Wegen, unter den Bäumen, in den Strassen. Er hat nicht nur allenthalben seine eigenen Pagoden, darinnen er täglich verehrt wird, sondern er steht auch zugleich fast in allen andern Pagoden und bekommt die ersten Opfer, weil alles, was guten Fortgang haben soll, in seinem Namen angefangen werden muss.*
 
