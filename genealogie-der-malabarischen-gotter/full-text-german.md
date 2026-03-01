@@ -28,6 +28,9 @@
 
 # [Vorwort.]()
 
+# [Vorrede der Verfasser.]()
+
+# [Tabelle.]()
 
 ---
 
