@@ -26,11 +26,11 @@
 
 ---
 
-# [Vorwort.]()
+# [Vorwort.](#vorwort-1)
 
-# [Vorrede der Verfasser.]()
+# [Vorrede der Verfasser.](#vorrede-der-verfasser-1)
 
-# [Tabelle.]()
+# [Tabelle.](#tabelle-1)
 
 ---
 
