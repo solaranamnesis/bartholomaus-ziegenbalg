@@ -153,7 +153,7 @@ B\. _மும்மூா்த்திகள் Mummūrtigel die drei grösst
 
 1\. Seine Weiber, deren zwei sind:
 
-a\. _பாா்வதி (பா்வதம் Berg, die Berggeborene) Pārvati_, welche für die obengedachte Sakti anzusehen ist und in Isvara's Pagoden unter mancherlei Namen verehrt wird, auch ihre gewissen Fest- und Fasttage hat.
+a\. _பாா்வதி_ (பா்வதம் Berg, die Berggeborene) _Pārvati_, welche für die obengedachte Sakti anzusehen ist und in Isvara's Pagoden unter mancherlei Namen verehrt wird, auch ihre gewissen Fest- und Fasttage hat.
 
 b\. _கங்கை Ganga_ (vgl. das deutsche Gang), welche eine Göttin des Wassers ist und wie eine Sirene, halb Weib halb Fisch, abgebildet wird. Ihre Figur steht in keiner Pagode, sie wird aber dadurch verehrt, dass die Menschen sich allenthalben in Flüssen waschen und dabei ihre Anbetung tun. Unter dem Wort Ganga werden alle Flüsse verstanden, besonders aber der grosse Ganges, dessen Wasser für das allerheiligste zur Sündenreinigung gehalten wird. Diese Ganga hat acht Jungfrauen zu ihren Gespielinnen, welches gleichfalls 8 Flüsse sind als யமுனை Yamuna, சரசுவதி Sarasvati, சிந்து Sindhu d. i. Indus, நருமதை Nerbudda, கோதாவாி Gōdāvery, காவோி Kāvēry, மன்னேறி (?) Mannēry, கன்னிகை Kanya oder குமாி Kumari (Jungfrau, nahe bei Cap Comorin).*
 
@@ -161,11 +161,11 @@ b\. _கங்கை Ganga_ (vgl. das deutsche Gang), welche eine Göttin des Wa
 
 2\. Seine Söhne, deren eigentlich zwei sind als:
 
-a\. _விக்கிநேசுரன்_ (_விக்கிநம்_ Hinderniss, der alle Hindernisse Entfernende) _Vighnēsvara_ der mit einem Elephanten-Rüssel abgebildet wird und viele Pagoden, auch viele Namen hat als விநாயகன் (வி gross, நாயகன் Herr) Vināyaka, பிள்ளையாா் (das erlauchte Kind) Püllaiyār, கணபதி (பதி Herr, கணம் Schaar, Truppe sc. der Götter) Ganapati. Seine Figur steht überall an den Wegen, unter den Bäumen, in den Strassen. Er hat nicht nur allenthalben seine eigenen Pagoden, darinnen er täglich verehrt wird, sondern er steht auch zugleich fast in allen andern Pagoden und bekommt die ersten Opfer, weil alles, was guten Fortgang haben soll, in seinem Namen angefangen werden muss.*
+a\. _விக்கிநேசுரன்_ (விக்கிநம் Hinderniss, der alle Hindernisse Entfernende) _Vighnēsvara_ der mit einem Elephanten-Rüssel abgebildet wird und viele Pagoden, auch viele Namen hat als விநாயகன் (வி gross, நாயகன் Herr) Vināyaka, பிள்ளையாா் (das erlauchte Kind) Püllaiyār, கணபதி (பதி Herr, கணம் Schaar, Truppe sc. der Götter) Ganapati. Seine Figur steht überall an den Wegen, unter den Bäumen, in den Strassen. Er hat nicht nur allenthalben seine eigenen Pagoden, darinnen er täglich verehrt wird, sondern er steht auch zugleich fast in allen andern Pagoden und bekommt die ersten Opfer, weil alles, was guten Fortgang haben soll, in seinem Namen angefangen werden muss.*
 
 *) Im Norden wird Vighnēsvara gewöhnlich Ganēsa (Gan-īsa = Ganapati) genannt, und die ihm zugeteilten Geschäfte sind im allgemeinen die des Janus der Römer.
 
-b\. _சுப்பிரமணியன்_ (_சுப்பிரம்_ Weisse, Glanz, மணி Edelstein, also der Diamantgleiche) _Subhramanya_, welcher teils eigene Pagoden hat, teils in Isvara's Pagoden täglich mitverehrt wird. Er hat gleichfalls viele Namen und wird mit einem und auch mit 6 Gesichtern abgebildet, welche 6 Gesichter er angenommen hat, als er mit den 330,000,000 Göttern wider die grossen Riesen, அசுரா் Asuras genannt, in Krieg zog und dies ganze Riesengeschlecht ausrottete. Es werden ihm zwei Weiber zugeschrieben als வள்ளியம்மை Valliyammai und தெய்வயானை (தெய்வம் Gottheit, யானை Elephant) Dēvayānai, welche beide in rechter Weibsgestalt abgebildet werden.*
+b\. _சுப்பிரமணியன்_ (சுப்பிரம் Weisse, Glanz, மணி Edelstein, also der Diamantgleiche) _Subhramanya_, welcher teils eigene Pagoden hat, teils in Isvara's Pagoden täglich mitverehrt wird. Er hat gleichfalls viele Namen und wird mit einem und auch mit 6 Gesichtern abgebildet, welche 6 Gesichter er angenommen hat, als er mit den 330,000,000 Göttern wider die grossen Riesen, அசுரா் Asuras genannt, in Krieg zog und dies ganze Riesengeschlecht ausrottete. Es werden ihm zwei Weiber zugeschrieben als வள்ளியம்மை Valliyammai und தெய்வயானை (தெய்வம் Gottheit, யானை Elephant) Dēvayānai, welche beide in rechter Weibsgestalt abgebildet werden.*
 
 *) Subhramanya, auch Skanda, heisst im Norden Kārtikēya als der von den Krittikas, den Pleiaden, gesäugte. Er ist Siva's Obergeneral und entspricht dem römischen Kriegsgott Mars. Manche trennen சு (gut) und பிாமணியன் als Vorsteher der Brahmanenordnung, dann wäre zu schreiben Subrahmanya.
 
