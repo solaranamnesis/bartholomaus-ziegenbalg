@@ -203,9 +203,9 @@ C\. _கிராமதேவதைகள்_ (கிராமம் Dorf) _Grā
 
 2\. _எல்லம்மை Ellammai_, welche auf ihrem Haupt um ihre Krone viele Schlangen hat. Sie ist die Mutter, von welcher Vischnu in seiner 5. Verwandlung geboren und பரசுராமன் Parasurāma genannt worden. Sie hat ihre eigenen Pagoden und ein jährliches Fest.
 
-3\. _மாரியம்மை_ (மாரி Pocken, அம்மை Mutter) _Māriammai_, von welcher die Pocken, Masern und Blattern herkommen. Bei ihren Pagoden hat der [] (Erhalter) Kāttān, ein sehr gewaltiger Teufel, eine Kapelle.
+3\. _மாரியம்மை_ (மாரி Pocken, அம்மை Mutter) _Māriammai_, von welcher die Pocken, Masern und Blattern herkommen. Bei ihren Pagoden hat der காத்தான் (Erhalter) Kāttān, ein sehr gewaltiger Teufel, eine Kapelle.
 
-4\. _அங்காளம்மை Ankāli_ gleichfalls mit eigenen Pagoden, darinnen der [] ([] gross, [] Gott) Periyatambirän und eSirupßaär Vira-Bhadra mitstehet. Der erste ist von Isvara mit 1000 Häuptern und 2000 Armen erschaffen worden, der letzte aber ist in einem Feueropfer tua&w Yäga entstanden, welches ein König über alle 14 Welten (Dakscha) angerichtet, um Isvara von seiner Gottheit ab und einen andern grossen Gott einzusetzen.
+4\. _அங்காளம்மை Ankāli_ gleichfalls mit eigenen Pagoden, darinnen der பெரியதம்பிரான் (பெரிய gross, தம்பிரான் Gott) Periyatambirän und eSirupßaär Vira-Bhadra mitstehet. Der erste ist von Isvara mit 1000 Häuptern und 2000 Armen erschaffen worden, der letzte aber ist in einem Feueropfer tua&w Yäga entstanden, welches ein König über alle 14 Welten (Dakscha) angerichtet, um Isvara von seiner Gottheit ab und einen andern grossen Gott einzusetzen.
 
 5\. _பத்திரகாளி Bhadra-Kāli_ (Sakti von Vīra-Bhadra), welche mit 10 Händen und einem feurigen Kopf abgebildet wird. Sie hat jährlich ein Fest von 8-9 Tagen wie alle andern. In ihren Pagoden steht der அகேராம் (Fürchterlichkeit) Aghōra, welcher Isvara selbst ist, der im Zorn eine solche Gestalt angenommen und mit der Bhadra-Kāli getanzt hat.
 
