@@ -217,49 +217,33 @@ C\. _கிராமதேவதைகள்_ (கிராமம் Dorf) _Grā
 
 2\. _Teufel und Riesen, vor welchen die Schutzgötter die Menschen schützen sollen:_
 
-1. luiiaer Regel Teufel, die nach einiger Meinung von Gott gleich als Teufel geschaffen worden, nach anderer Aussage aber von Gott wegen ihrer begangenen Sünden aus der Seligkeit und aus der Zahl der Einwohner in allen 14 Welten auf diese Welt zu Teufeln verflucht und verstossen worden, deren Zahl noch täglich durch das Sterben sündlicher Menschen vermehrt werde. Unter solchen Teufeln haben sie viele mit Namen benannt und specificirt, sonderlich diejenigen, welche gewisse Sünden bei den Menschen verursachen oder auch die Menschen leibhaftig besitzen.
+1\. _பேய்கள் Pēgel Teufel_, die nach einiger Meinung von Gott gleich als Teufel geschaffen worden, nach anderer Aussage aber von Gott wegen ihrer begangenen Sünden aus der Seligkeit und aus der Zahl der Einwohner in allen 14 Welten auf diese Welt zu Teufeln verflucht und verstossen worden, deren Zahl noch täglich durch das Sterben sündlicher Menschen vermehrt werde. Unter solchen Teufeln haben sie viele mit Namen benannt und specificirt, sonderlich diejenigen, welche gewisse Sünden bei den Menschen verursachen oder auch die Menschen leibhaftig besitzen.
 
-2. ' Bhütas, welches gleichfalls Teufel sind, die aber in
+2\. _பூதங்கள் Bhūtas_, welches gleichfalls Teufel sind, die aber in einer ganz andern Gestalt abgebildet werden. Diese sollen zu allerlei geringen Diensten der Götter und zur Strafe der Bösen erschaffen sein.
 
-einer ganz andern Gestalt abgebildet werden. Diese sollen zu allerlei geringen Diensten der Götter und zur Strafe der Bösen erschaffen sein.
+3\. _இராட்சதா்_ (Riese, Gigant) _Rakschasas_, gewaltige Riesen mit vielen Köpfen, deren Oberster Rāvana, gegen welchen Rāma gekämpft.
 
-3. S>a mLepä (Riese, Gigant) Rühschasas, gewaltige Riesen mit vielen Köpfen, deren Oberster Rävana, gegen welchen Räma gekämpft.
+4\. _அசுரன்_ (அ nicht, சுரன் Gott) _Asuras_, eine andre Art Riesen, die von கூரன் (Held) Sūra herkommen, der da ein König über alle 14 Welten gewesen und mit seinem Riesengeschlecht die Götter sehr geplagt und sie zu Sclaven gemacht hat.
 
-4. ffo-nsir ( _» nicht, a-nar Gott) Asuras, eine andre Art Riesen, die von (Held) Süra herkommen, der da ein König über alle 14 Welten gewesen und mit seinem Riesengeschlecht die Götter sehr geplagt und sie zu Sclaven gemacht hat.
+D\. _தேவா்கள் Dēvas, eine Art Untergötter_, die in der Welt தேவலோகம் Dēvalōka sich aufhalten und hier auf Erden weder Pagoden noch Gottesdienst haben, ohne nur dass ihrer vielfältig in den Historienbüchern gedacht wird und man auch bei den Opfern der oben gedachten Götter und Göttinnen einige Ceremonien für sie macht. Zu ihrer Zahl werden auch die Personen gerechnet, die zwar nicht den Namen Götter führen, aber doch vielfältig in ihren Historienbüchern vorkommen und unter ihnen in hoher Achtung sind. Allhier hat man zu beachten:
 
-D. Opeuiaar Devas, eine Art Untergötter, die in der Welt GpaiGeoir «ti> Dgvalöka sich aufhalten und hier auf Erden weder Pagoden noch Gottesdienst haben, ohne nur dass ihrer vielfältig in den Historienbüchern gedacht wird und man auch bei den Opfern der oben gedachten Götter und Göttinnen einige Ceremonien für sie macht. Zu ihrer Zahl werden auch die Personen gerechnet, die zwar nicht den Namen Götter führen, aber doch vielfältig in ihren Historienbüchern Vorkommen und unter ihnen in hoher Achtung sind. Allhier hat man zu beachten :
+1\. _முப்பத்துமுக்கோடி தேவா்கள்_ (கோடி 10,000,000) _Muppattumukkōdi Dēvas_, welches 330,000,000 Götter* sind, die da von den oben gemeldeten Göttern ganz unterschieden und von Gott zu Einwohnern derjenigen Welt, die Dēvalōka heisst, erschaffen worden. Sie schreiben ihnen Leiber und Weiber zu, wie auch allen andern Göttern. Sie haben sie aber nicht mit Namen benannt, daher nur einige unter ihnen sonderlich zu merken sind:
 
-I. (LpüußfiQpäCsirLB. Gp aiirsar (Gsm f 10,000,000) Muppattumukkodi Devas, welches 330,000,000 Götter* sind, die da von den oben gemeldeten Göttern ganz unterschieden und von Gott zu Einwohnern derjenigen Welt, die Dgvalöka heisst, erschaffen worden. Sie
+*) Sie zerfallen in 4 Klassen, an der Spitze der ersten, welche 120,000,000 zählt, stehen die 12 Adityas (ஆதித்தா், die Sonne in jedem Monat als besondere Personification gedacht); ander Spitze der zweiten mit 100,000,000 die 11 Rudras (die verschiedenen Winde); an der Spitze der vierten mit 80,000,000 die 8 Vasus (personificirte Naturphänomena, wie Feuer, Zwielicht, Tag, Polarstern); an der Spitze der vierten mit 20,000,000 die 49 Maruts (Winde, unter denen besonders Pavana, der Vater Hanumans, hervorragt) und die 2 berühmten அச்சுவினிகள் Asvinis, die Götterärzte, denen der Monat August-September geweiht ist, welche als eigentümliche Schöpfung der Indischen Mythologie das vor der Morgenröte herechiessende Strahlenpaar darstellen.
 
-* Sie zerfallen in 4 Klassen, an der Spitze der ersten, -welche 120,000,000 zahlt, stehen die 12 Adityas ( <g£>Asr, die Sonne in jedem Monat als besondere Personiflcation gedacht); ander Spitze der zweiten mit 100 , 000,000 die 11 Rudras (die verschiedenen Winde); an der Spitze der vierten mit 80,000.000 die 8 Vasus (personificirte Naturphänomena, wie Feuer, Zwielicht, Tag, Polarstern); an der Spitze der vierten mit 20,000,000 die 49 Maruts (Winde, unter denen besonders Pavana, der Vater Hanumans, hervorragt) und die 2 berühmten Asvinis, die
+a\. _தேவேந்திரன் Dēvēndra_ (Indra) welcher der König unter ihnen ist, bei welchem sie alle Sachen vorbringen, die unter ihnen vorgehen, dessen Audienz-Saal so gross ist, dass nicht nur allein die 330,000,000 Götter, sondern auch die vielen Propheten und Bedienten auf einmal darin Raum haben.
 
-Götterärzte, denen der Monat August-September geweiht ist, welche als eigenthümliehe Schöpfung der Indischen Mythologie das vor der Morgenröthe hertchiessende Strahlenpaar darstellen.
+b\. _இந்திரானி Indrāni_, des Dēvēndra Weib.
 
-schreiben ihnen Leiber und Weiber zu, wie auch allen andern Göttern. Sie haben sie aber nicht mit Namen benannt, daher nur einige unter ihnen sonderlich zu merken sind :
+c\. _சித்திரகுத்தன் Chitragupta_, Dēvēndras Sohn, der von einer Kuh geboren worden und bei Siva derjenige Schreiber ist, der alles Böse und Gute aufschreibt, das unter den Menschen vorgeht, nach welchem ein jeder nachmals gerichtet wird.
 
-a. QpGtuiifieär Devendra (Indra) welcher der König unter ihnen ist, bei welchem sie alle Sachen Vorbringen, die unter ihnen
-
-i Vorgehen, dessen Audienz-Saal so gross ist, dass nicht nur allein die 330,000,000 Götter, sondern auch die vielen Propheten und Bedienten auf einmal darin Raum haben.
-
-b. §}ißans$ Indräni, des Dgvendra Weib.
-
-c. Spßotgßßshr Chitragupta, Devendras Sohn, der von einer Kuh geboren worden und bei Siva derjenige Schreiber ist, der alles Böse und Gute aufschreibt, das unter den Menschen vorgeht, nach welchem ein jeder nachmals gerichtet wird.
-
-II. j§) 0 Rischis, welches Propheten sind und eine Zahl von
-
-48000 ausmachen. Sie sind mit in der Götterwelt, thun strenge Busse und haben grosse Gaben erlanget. Sie bedürfen weder Essen noch Schlaf und können sein, wo sie wollen, unter ihnen sind die vornehmsten: j^aehßäjdr Agastya, isaffß&r Närada, Qsei rpwär Gautama, GeußeSiuaair Vedavyäsa, LjSesi---f&LDaiufleiQ Pundarlka, eutreoil&ai Välmiki, euGleipi---aii Vasischtha, ^r/fo nr&dr Dürväsa, eß««u mßßßaäi Yisvämitra, Süta, aiSeoii Kapila,
-
-sn&luaf Käsyapa, u>mrd aani---ar Märkandeya.
+II. j§) 0 Rischis, welches Propheten sind und eine Zahl von 48000 ausmachen. Sie sind mit in der Götterwelt, thun strenge Busse und haben grosse Gaben erlanget. Sie bedürfen weder Essen noch Schlaf und können sein, wo sie wollen, unter ihnen sind die vornehmsten: j^aehßäjdr Agastya, isaffß&r Närada, Qsei rpwär Gautama, GeußeSiuaair Vedavyäsa, LjSesi---f&LDaiufleiQ Pundarlka, eutreoil&ai Välmiki, euGleipi---aii Vasischtha, ^r/fo nr&dr Dürväsa, eß««u mßßßaäi Yisvämitra, Süta, aiSeoii Kapila, sn&luaf Käsyapa, u>mrd aani---ar Märkandeya.
 
 III. GwsireuirpßajiT (Guietrw eine Art Trommel, eairpßiuü, musikalisches
 
 Instrument) Melavädyas, Musikanten und Bediente, die nahe um die Götter sind, als die Qdtearnii Kinnaras, die auf Instrumenten spielen und dazu singen; & Tumburu (einer der Gandharbas) und wurpi Näradas, welche gleichfalls bei den Göttern musiciren; Kimpuruschas, welche wie die
 
-Engel mit Flügeln abgebildet werden und nach dem Befehl der Götter allerlei Dienst verrichten; sQi---aipaii GarudaGandharbas, welche auch mit Flügeln abgemalt werden und sich von Vischnu zu diesen und jenen Diensten gebrauchen lassen (Garuda Vischnu's heiliger Vogel); umesran (uaadii Schlange) Pannagas, welches Künstler sind, die vor den Göttern mit Schlangen spielen; Sßßi Siddhas (&ßß Erfolg, wunderbare Gabe) die da in der Luft fliegen und bald hier, bald da sein können; fSßßuirßjt i Vidyädharas, welches die Gelehrten in der Götterwelt sind, die da alle Künste und Disciplinen verstehen und in der Versammlung der Götter über allerlei gelehrte Sachen reden; aansirpn Gananäthas, welches Gesandten sind, die in drei Secten getheilt werden als: Sai^rßirisär (jgrrßax Bote) Siva-Dütas, durch welche Siva diejenigen, die seiner Religion zugethan sind und darnach gewandelt, aus der Welt in sein Paradies Kailäsa holen lässt; Vischnu-Dütas, durch welche Vischnu
-
-solche, die von seiner Religion sind und fromm gelebt haben, in
-
-sein Paradies Vaikuntha abholen lässt; ajus^r^ndstir YamaDütas, durch welche Yama, der Gott des Todes und König der Höllen, die Bösen aus der Welt in die Hölle holen lässt.
+Engel mit Flügeln abgebildet werden und nach dem Befehl der Götter allerlei Dienst verrichten; sQi---aipaii GarudaGandharbas, welche auch mit Flügeln abgemalt werden und sich von Vischnu zu diesen und jenen Diensten gebrauchen lassen (Garuda Vischnu's heiliger Vogel); umesran (uaadii Schlange) Pannagas, welches Künstler sind, die vor den Göttern mit Schlangen spielen; Sßßi Siddhas (&ßß Erfolg, wunderbare Gabe) die da in der Luft fliegen und bald hier, bald da sein können; fSßßuirßjt i Vidyädharas, welches die Gelehrten in der Götterwelt sind, die da alle Künste und Disciplinen verstehen und in der Versammlung der Götter über allerlei gelehrte Sachen reden; aansirpn Gananäthas, welches Gesandten sind, die in drei Secten getheilt werden als: Sai^rßirisär (jgrrßax Bote) Siva-Dütas, durch welche Siva diejenigen, die seiner Religion zugethan sind und darnach gewandelt, aus der Welt in sein Paradies Kailäsa holen lässt; Vischnu-Dütas, durch welche Vischnu solche, die von seiner Religion sind und fromm gelebt haben, in sein Paradies Vaikuntha abholen lässt; ajus^r^ndstir YamaDütas, durch welche Yama, der Gott des Todes und König der Höllen, die Bösen aus der Welt in die Hölle holen lässt.
 
 IV. acht, ßd(g Punkt des Compasses,
 
