@@ -32,7 +32,7 @@
 
 # [Tabelle.](#tabelle-1)
 
-# [Erster Teil vom பராபரவஸ்து Parābaravastu.]()
+# [Erster Teil vom பராபரவஸ்து Parābaravastu.](#erster-teil-vom-பராபரவஸ்து-parābaravastu-1)
 
 ---
 
