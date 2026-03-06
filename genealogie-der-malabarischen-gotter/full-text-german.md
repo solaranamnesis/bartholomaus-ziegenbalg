@@ -32,9 +32,19 @@
 
 # [Tabelle.](#tabelle-1)
 
+## [A.]()
+
+## [B.]()
+
+## [C.]()
+
+## [D.]()
+
 # [Erster Teil vom பராபரவஸ்து Parābaravastu.](#erster-teil-vom-பராபரவஸ்து-parābaravastu-1)
 
 ## [Erstes Kapitel. --- Parābaravastu als immateriell, gestaltlos und unvergleichbar.](#erstes-kapitel-----parābaravastu-als-immateriell-gestaltlos-und-unvergleichbar-1)
+
+## [Zweites Kapitel. --- Parābaravastu als materielles, versichtbartes Wesen.]()
 
 ---
 
@@ -261,6 +271,8 @@ Aus solcher Überzeugung, dass ein Gott sei, der da auf der Welt von den Mensche
 
 *) Obgleich Ziegenbalg selbst noch mit den Katholiken Sarvēsvara als Namen Gottes gebraucht, so ist doch die sachgemässe Eintielung seiner Genealogie, worin er zuerst vom Parābaravastu und erst im letzten Teil von den Dēvas oder Halbgöttern handelt, ein Beweis, dass der zuerst von Miss. Walther eingeführte Gottes-Name Parābaren „Der höchsten Wesens“ oder „Der Erste und Letzte“ viel richtiger ist als die Neuerung தேவன் Dēva, dem ohne Näherbestimmung im Tamulischen so etwas Gespensterhaftes anklebt.
 
+---
+
 ## Erstes Kapitel. --- Parābaravastu als immateriell, gestaltlos und unvergleichbar.
 
 Wenn diese Heiden vom höchsten göttlichen Wesen reden, insofern es ganz geistig und immateriell ist, so raisonniren sie ganz verständig davon und nehmen alles das als unstreitige Wahrheit an, was wir Christen von Gottes Wesen und Eigenschaften glauben, sagend, es sei nur ein einiger Gott, der ein ganz geistiges und unbegreifliches Wesen habe, und der da ewig, allmächtig, allwissend, allweise, heilig, wahrhaftig, gerecht, gütig und barmherzig sei; der alles schaffe, regiere und erhalte; der da Lust habe bei den Menschen zu wohnen und sie zu beseligen in dieser und jener Welt, daher ihm dienen eine grosse Glückseligkeit sei. Die Namen, damit sie solches göttliche Wesen benennen, sind lauter Ausdrücke der göttlichen Eigenschaften als சா்வேசுரன் Sarvēsvara der Herr über alles, நித்தியானந்தன் Nityānanda ein ewig Seliger, ஆதிநாயகா் Adināyaka der allererste Herr, der keinen König über sich hat, சா்வலோகதயாபரன் Sarvalōkadayābara der Liebhaber aller Welten, சா்வரட்சகா் Sarvarakschaka ein Heiland aller Dinge, கா்த்தா் oder கத்தா் Kartter (der Thuende) der Herr etc. Dergleichen Benennungen findet man viele hundert in ihren Büchern und in ihren Reden. Weil aber ihnen solches Wesen ganz unbegreiflich ist und in keiner Figur angebetet werden kann, so wird solches nirgends in den Pagoden verehrt, viel weniger im Geist und in der Wahrheit angebetet. In ihren Gesetzbüchern findet man auch wenige Spuren von diesem immateriellen göttlichen Wesen und dessen Dienste, sondern es ist vielmehr die Erkenntniss solches Wesens durch das viele Götzenwesen und durch die verworrenen Ceremonialgesetze ganz ausgelöscht worden, also dass nach und nach allen Göttern diejenigen Namen beigelegt wurden, die doch nur allein von diesem göttlichen Wesen mit Recht ausgesagt werden können, wodurch Jedermann auf einen solchen Gottesdienst verfallen, der in lauter äusserlichen Verehrungen der mancherlei Götterfiguren besteht.
@@ -287,221 +299,157 @@ Der (anonyme) Autor von Gnānavönpā bekennt v. 9, dass ausser diesem höchsten
 
 Von der Vereinigung und Einwohnung dieses Gottes heisst es: „Als du mich schufest, kanntest du mich. Aber ich habe dich erst kennen lernen, als ich zu Verstand kommen bin. Ich mag sitzen, gehen oder stehen, wo ich will, so werde ich deiner nicht vergessen. Du bist mein worden, und ich bin dein worden. Ich habe mit meinen Augen gesehen, wie auch mit meinem Gemüte erkannt, dass du, o Gott, zu mir gekommen bist, als wie ein Blitz vom Himmel fällt.“ 1., v. 26, 27. Ferner v. 34: „Der ganze weit ausgebreitete Luntenbaum ist verborgen in einem kleinen Samenkorn. Ihr Menschen seid gleichfalls in der Zeugungskraft (Linga!) eingeschlossen, aber Niemand unter euch erkennt solches recht. Beschauet euch selbst, so werdet ihr finden, dass der Allerhöchste in euch ist. --- v. 75: Wirst du dein Herz in den rechten Weg richten und damit Gott unverrückt anbeten, so wird dein und sein Herz Ein Herz werden.“ Ein andrer schreibt von solcher Einwohnung Gottes: „Wer stets Gott in seinem Herzen hat, bei dem wird er wohnen und seine Sünden wegtun, gleichwie ein Hobel die ungleichen Aeste und Späne abnimmt.“ v. 5. ff.
 
-Alles, was bisher von Gott dem höchsten Wesen aus dieser Heiden eigenen Büchern angeführt worden, wird kurz zusammengefasst in einem Briefe, den ein verständiger Heide nur neuligst an uns geschrieben: „Gott das höchste Wesen ist von solcher unermesslichen Grösse und Herrlichkeit, dass er von Niemand ergründet werden kann. In unserer Theologie steht geschrieben, dass er allmächtig ist und voller Gnade, als der da alles aus Gnade regiere und erhalte; was aber sonst seine Ewigkeit anlangt, so kann Niemand weder Anfang noch Ende darin finden, denn es kann Niemand sagen: zu dieser oder jener Zeit bat er angefangen zu sein, und so und so lange hat er schon regiert. Dies ist eine Sache, die Niemand ergründen kann. Solch höchstes Wesen bat alle Götter, alle Menschen, alle Creaturen und alle Dinge, die in der Welt begriffen sind, erschaffen. Es ist die unermessliche Güte, die unermessliche Gerechtigkeit und unermessliche Weisheit, nach welcher es alles regiert und erhält. Dergleichen Unermesslichkeiten und Unbegreiflichkeiten sind viele, denn man kann keine Beschreibung noch Eintheilung von Gott dem höchsten Wesen machen und sagen, so und so ist er beschaffen. Die Ursache ist diese, dass er alle Augenblick dasjenige sein kann, was er nur gedenkt, dass er gern sein will. Er allein erkennt sich so, wie er in der That ist, sonst aber kann er weder von den Menschen, noch von den Göttern nach der eigentlichen Beschaffenheit recht erkannt werden. Dies steht selbst so in unserer Theologie geschrieben, worin zugleich vermeldet wird, » dass wenn man ihn anbeten wolle, man sich ihn in Gestalt eines heiligen Mannes vorstellen müsse. Zuletzt
+Alles, was bisher von Gott dem höchsten Wesen aus dieser Heiden eigenen Büchern angeführt worden, wird kurz zusammengefasst in einem Briefe, den ein verständiger Heide nur neuligst an uns geschrieben: „Gott das höchste Wesen ist von solcher unermesslichen Grösse und Herrlichkeit, dass er von Niemand ergründet werden kann. In unserer Theologie steht geschrieben, dass er allmächtig ist und voller Gnade, als der da alles aus Gnade regiere und erhalte; was aber sonst seine Ewigkeit anlangt, so kann Niemand weder Anfang noch Ende darin finden, denn es kann Niemand sagen: zu dieser oder jener Zeit hat er angefangen zu sein, und so und so lange hat er schon regiert. Dies ist eine Sache, die Niemand ergründen kann. Solch höchstes Wesen hat alle Götter, alle Menschen, alle Creaturen und alle Dinge, die in der Welt begriffen sind, erschaffen. Es ist die unermessliche Güte, die unermessliche Gerechtigkeit und unermessliche Weisheit, nach welcher es alles regiert und erhält. Dergleichen Unermesslichkeiten und Unbegreiflichkeiten sind viele, denn man kann keine Beschreibung noch Einteilung von Gott dem höchsten Wesen machen und sagen, so und so ist er beschaffen. Die Ursache ist diese, dass er alle Augenblick dasjenige sein kann, was er nur gedenkt, dass er gern sein will. Er allein erkennt sich so, wie er in der Tat ist, sonst aber kann er weder von den Menschen, noch von den Göttern nach der eigentlichen Beschaffenheit recht erkannt werden. Dies steht selbst so in unserer Theologie geschrieben, worin zugleich vermeldet wird, dass wenn man ihn anbeten wolle, man sich ihn in Gestalt eines heiligen Mannes vorstellen müsse. Zuletzt wird alles wiederum in ihn als seinen Ursprung zurückgehen. Soviel habe ich schreiben können von der Herrlichkeit Gottes des höchsten Wesens. Ferner, was seine Eigenschaften anlangt, so muss man sagen, dass er ein solches Wesen sei, das mit nichts verglichen werden kann. Alle die Eigenschaften, die wir an den Menschen für gut und köstlich halten, sind nur Abschattungen seiner göttlichen Eigenschaften. Er kann so viel Eigenschaften annehmen, als er immer will; denn indem er was gedenkt, so ist es auch. Er ist ein solcher, der eine Gestalt hat und doch auch keine hat. Er ist von unvergleichlicher Schöne, von unermesslicher Weisheit, von unbegreiflicher Gütigkeit, von unendlicher Gnade, Liebe und Barmherzigkeit, von unergründlicher Demut und Geduld. Da steht nun in unserm Gesetz geschrieben, dass er nach solchen Eigenschaften alles regiert, erlöst und erhält. So viel erkennen wir von seinen Eigenschaften, das übrige ist uns unbegreiflich, darinnen wir weder Mass noch Ziel finden.“
 
-wird alles wiederum in ihn als seinen Ursprung zurückgehen. Soviel habe ich schreiben können von der Herrlichkeit Gottes des höchsten Wesens. Ferner, was seine Eigenschaften anlaugt, so muss man sagen, dass er ein solches Wesen sei, das mit nichts verglichen werden kann. Alle die Eigenschaften, die wir an den Menschen für gut und köstlich halten, sind nur Abschattungen seiner göttlichen Eigenschaften. Er kann so viel Eigenschaften annehmen, als er immer will; denn indem er was gedenkt, so ist es auch. Er ist ein solcher, der eine Gestalt hat und doch auch keine hat. Er ist von unvergleichlicher .Schöne, von unermesslicher Weisheit, von unbegreiflicher Gütigkeit, von unendlicher Gnade, Liebe und «Barmherzigkeit, von unergründlicher Demuth und Geduld. Da steht nun in unserm Gesetz geschrieben, dass er nach solchen Eigenschaften alles regiert, erlöst, und erhält« So viel erkennen wir von seinen Eigenschaften, das übrige ist uns unbegreiflich, darinnen wir weder Mass noch Ziel finden.
+„Was den Ort anlangt, da er ist, so können ihn die 14 Welten nicht begreifen, als der da weit über selbigen in einem hellen Lichte wohnt und alles in allem erfüllt. Seine Verrichtung ist diese, dass er alles gnädiglich erhält und regiert. Auf die Frage, ob seine Providenz sich auch über diese Welt erstrecke oder nicht, dient zur Antwort, dass sich selbige allerdings auch über diese Welt erstreckt, denn er sorgt für alles und ist gegen alles barmherzig. Hiernebst kann sich ausser ihm nicht das geringste bewegen, so gar genaue Aufsicht hat er auf alles. Ausser seiner Providenz kann nichts geschehen. Durch seine Fürsorge haben alle 8,400,000 Arten der lebendigen Creaturen, von der kleinsten Mirre an bis zu dem grössten Elephanten, Unterhalt, Speise und Ruhe. Alles lebt, regt und bewegt sich nach seiner Fürsorge und Gnade. Wenn seine Providenz aufhören sollte, würde sich nichts regen noch bewegen können. Er sorgt sogar auch für diejenigen Creaturen, die aus der Erde wachsen. Da Sie weiter fragen, wie man solchen Gott erkennen könne, so antworte ich, dass man ihn erkennen könne aus dem Gesetz, das er gegeben hat, und aus den Wundern, die er in der Welt tut, desgleichen auch aus dem Verstande und der Vernunft, die er den Menschen gegeben hat, und aus den Werken der Schöpfung und Erhaltung. Was endlich den Dienst anlangt, den man ihm zu erweisen schuldig ist, so besteht er vornämlich in Liebe und Glaube. Denn in unserm Gesetz wird dies für den vorzüglichsten Gottesdienst gehalten, wenn man mit Mund und Herzen Liebe und Glaube hat und alles aus Liebe und Glauben tut. Hiernebst muss man ihn anrufen und nach seinen Geboten wandeln. Ja man muss zu dieser und jener Zeit ununterbrochen ihm gewisse Verehrung antun, ihm gehorsam sein und seinem Willen gemäss leben.“
 
-„Was den Ort anlangt, da er ist, so können ihn die 14 Welten nicht begreifen, als der da weit über selbigen in einem hellen Lichte wohnt und alles in allem erfüllt. Seine Verrichtung ist diese, dass er alles gnädiglich erhält und regiert. Auf die Frage, ob seine Providenz sich auch über diese Welt erstrecke oder nicht, dient zur Antwort, dass sich selbige allerdings auch über diese Welt erstreckt, denn er sorgt für alles und ist gegen alleB barmherzig. Iliernebst kann sich ausser ihm nicht das geringste bewegen, so gar genaue Aufsicht hat er auf alles. Ausser seiner Providenz kann nichts geschehen. Durch seine Fürsorge haben alle 8,400,000 Arten der lebendigen Creaturen, von der kleinsten Mirre an bis zu dem grössten Elephanten, Unterhalt, Speise und Rahe. Alles lebt, regt und
+Aus diesem allen kann man nun zur Genüge sehen, was diese Heiden von Gott dem höchsten Wesen statuiren, und wie weit sie es in dem Licht der Natur gebracht haben, darinnen sie die römischen Heiden übertreffen, welches Licht der Natur aber durch Verführung ihrer alten Poeten und ihrer Brahmanen ganz verdunkelt worden, als welche viele Fabeln geschrieben und einen verworrenen Götzendienst eingeführt haben, aus welchem sich gar schwer einer herauswinden kann, ob er gleich noch so viel Widerspruch in seinem Gewissen fühlt und sehr vernünftig von dem höchsten Wesen raisonniren kann.
 
-bewegt sich nach seiner Fürsorge und Gnade. Wenn seine Providenz aufhören sollte, würde sich nichts regen noch bewegen können. Er sorgt sogar auch für diejenigen Creaturen, die aus der Erde wachsen. Da Sie weiter fragen, wie man solchen Gott erkennen könne, so antworte ich, dass man ihn erkennen könne aus dem Gesetz, das er gegeben hat, und aus den Wundern, die er in der Welt thut, desgleichen auch aus dem Verstände und der Vernunft, die er den Menschen gegeben hat, und aus den Werken der Schöpfung und Erhaltung. Was endlich den Dienst anlangt, den man ihm zu erweisen schuldig ist, so besteht er vornämlich in Liebe und Glaube. Denn in unserm Gesetz wird dies für den vorzüglichsten Gottesdienst gehalten, wenn man mit Mund und Herzen Liebe und Glaube hat und alles aus Liebe und Glauben thut. Hiernebst muss man ihn anrufen und nach seinen Geboten wandeln. Ja man muss zu dieser und jener Zeit ununterbrochen ihm gewisse Verehrung anthun, ihm gehorsam sein und seinem Willen gemäss leben.”
+---
 
-Aus diesem allen kann man nun zur Genüge sehen, was diese Heiden von Gott dem höchsten Wesen statuiren, und wie weit sie es
+Wahrscheinlich während Ziegenbalg in Trankebar wirkte, wurde zu Trichinopoly Tāyumānaver geboren, der Fürst der tamulischen mystischen Dichter, dessen Werke kein tamulischer Missionar ungelesen lassen sollte, wie auch die eingebornen Christen seine Worte vielfach apologetisch verwenden. Wenn Moor sein Hindu-Pantheon mit den begeisterten Oden eines Christen, Sir W. Jones, an die Indischen Gottheiten geschmückt hat, so wird es nicht ein minderer Schmuck dieses Werks sein, die christlichst klingenden Worte, welche vielleicht je aus dem Munde eines Heiden gekommen sind, eines Heiden, der wie Joseph sich dem bösen Ansinnen seiner Königin durch die Flucht entzogen, in der Übersetzung Dr. Grauls (Ind. Sinnpflanzen p. 188 ff.) mitzuteilen. Sie giebt einen Teil von Tāyumānavers Parābara-Kanni:
 
-in dem Licht der Natur. gebracht haben, darinnen sic die römischen Heiden übertreffen, welches Licht der Natur aber durch Verführung ihrer alten Poeten und ihrer Brahmanen ganz verdunkelt worden, als welche viele Fabeln geschrieben und einen verworrenen Götzendienst eingeführt haben, aus welchem sich gar schwer einer herauswinden kann, ob er gleich noch so viel Widerspruch in seinem Gewissen fühlt und sehr vernünftig von dem höchsten Wesen raisonniren kann.
+1\. _Der Weg zum allerhöchsten Wesen._
 
-Wahrscheinlich während Ziegcnbalg in Trankebar wirkte, wurde zn Trichinopoly Täyumänaver geboren, der Fürst der tamulischen mystischen Dichter, dessen Werke kein taraulischer Missionar ungelesen lassen sollte, wie auch die eingebornen Christen seine Worte vielfach apologetisch verwenden. Wenn Moor sein Hindu-Pantheon mit den begeisterten Oden eines Christen, Sir W. Jones, an die Indischen Gottheiten geschmückt hat, so wird es nicht ein minderer Schmuck dieses Werks sein, die christlichst klingenden Worte, welche vielleicht je aus dem Munde eines Heiden gekommen sind, eines Heiden, der wie Joseph sich dem bösen Ansinnen seiner Königin durch die Flucht entzogen, in der Uebersetzung Dr. Graul's (Ind. Sinnpflanzen p. 188 ff.) mitzutheilen. Sie giebt einen Theil von Täyumänavers Paräbara-Kanui :
+1\. An des holden Weltalls Spitze stehst du,  
+Erd und alles lenkst du und durchwehst du, Allerhöchstes Wesen!
 
-1. Der Weg zum allerhöchsten Wesen.
+2\. Bietet sich kein Weg zu dir den Frommen,  
+Die, in Liebe schmelzend, thränend kommen? Allerhöchstes Wesen!
 
-1. An des holden Weltalls Spitze stehst du,
+3\. Auf dem Weg _schon_ ist, wer Herzensmilde,  
+Neben Selbsterkenntniss, nimmt zum Schilde. Allerhöchstes Wesen!
 
-Erd und alles lenkst du und durchwehst du, Allerhöchstes Wesen !
+4\. Wer den _Himmel_ schaun will, sucht den Hügel;  
+Zu _dir_ trägt der Selbstbeschauung Flügel. Allerhöchstes Wesen!
 
-2. Bietet sich kein Weg zu dir den Frommen,
+2\. _Die Vereinigung der Seele mit dem höchsten Wesen._
 
-Die, in Liebe schmelzend, thränend kommen ? Allerhöchstes Wesen !
+5\. Für dich thronend ob des Aethers Zinne  
+Bist du, Herr, das „Wort“ zusammt „dem Sinne.“ Allerhöchstes Wesen!
 
-3. Auf dem Weg schon ist, wer Herzensmilde,
+6\. Die im Sinnen Wort und Sinn verlieren,  
+Rührst du _an_, doch ohne zu _be_rühren. Allerhöchstes Wesen!
 
-Neben Selbsterkenntniss, nimmt zum Schilde. Allerhöchstes Wesen !
+7\. Tiefbeschauern zeigst du wie im Spiegel  
+Himmlisches --- du Aethers Wonnehügel. Allerhöchstes Wesen!
 
-4. Wer den Himmel schaun will, sucht den Hügel ;
+8\. Lauter stirbt, wer dich, Herr, liebt zur Gnüge,  
+Schlummert dann in reiner Wonne Wiege. Allerhöchstes Wesen!
 
-Zu dir trägt der Selbstbeschauung Flügel. Allerhöchstes Wesen !
+9\. O du Lieb und Herzensschatz _der_ Seelen,  
+Die als Eins sehn --- Scherben und Juwelen! Allerhöchstes Wesen!
 
-2. Die Vereinigung der Seele mit dem höchsten Wesen.
+3\. _Des Dichters Umkehr._
 
-5. Für dich thronend ob des Aethers Zinne
+10\. Meinen Wahn von „Mein und Ich“ zu tödten  
+Irrt ich heilsbegierig um in Nöten. Allerhöchstes Wesen!
 
-Bist du, Herr, das „Wort" zusammt „dem Sinne.” Allerhöchstes Wesen !
+11\. Da erweichte meines Geistes Stolz sich,  
+Mein Gebein zerfloss, in Liebe schmolz ich. Allerhöchstes Wesen!
 
-6. Die im Sinnen Wort und Sinn verlieren,
+12\. Vater, Ruh des Müden, Ungeduld' gen!  
+„Preis, Preis“ rufend, will ich stets nun huld'gen. Allerhöchstes Wesen!
 
-Rührst du an, doch ohne zu Jeriihreri. Allerhöchstes Wesen !
+13\. Schenk mir Durst'gem seligste Versenkung!  
+Ich versinke ohne solche Schenkung. Allerhöchstes Wesen!
 
-7. Tiefbeschauern zeigst du wie im Spiegel
+4\. _Wonne-Geschmack._
 
-Himmlisches --du Aethers Wonnehügel. Allerhöchstes Wesen !
+14\. Alles Denken wissend, mir entgegen  
+Kamst du mich zu laben --- Gnadenregen! Allerhöchstes Wesen!
 
-8. Lauter stirbt, wer dich, Herr, liebt zur Gnüge,
+15\. Nectar, der nie satt macht! Freudenflut du!  
+Tiefster Stille überschwenglich Gut du: Allerhöchstes Wesen!
 
-Schlummert dann in reiner Wonne Wiege. Allerhöchstes Wesen !
+16\. Honigseim, der Dinge Kern durchfliessend  
+Und mein eignes Innerstes durchsüssend! Allerhöchstes Wesen!
 
-9. 0 du Lieb und Herzensschatz der Seelen,
+17\. Perle du, Koralle, ächtsten Goldes  
+Schönster Glanz, mein Geistes-Licht, mein holdes! Allerhöchstes Wesen!
 
-Die als Eins sehn --Scherben und Juwelen ! Allerhöchstes Wesen !
+18\. Aug', Gedanke, Paradieses-Baum du!  
+Aetherstrahl und Wonnewunder-Traum du! Allerhöchstes Wesen!
 
-3. Des Dichters Umhehr.
+5\. _Klage über innere Dürre._
 
-10. Meinen Wahn von „Mein und Ich” zu tödten
+19\. Tief eindringend, ward mein Geist ganz kraftlos,  
+Dürrem Dorn gleich --- und du lässt mich saftlos! Allerhöchstes Wesen!
 
-Irrt ich heilsbegierig um in Nöthen. Allerhöchstes Wesen !
+20\. Kann ich Wonnemeer! in dir nicht schlürfen:  
+Werd ich dann den Durst je löschen dürfen? Allerhöchstes Wesen!
 
-11. Da erweichte meines Geistes Stolz sich,
+21\. Ach, wann schweigt mein Schmerz auch nur ein wenig!  
+Springt mir keine Freudenflut, mein König! Allerhöchstes Wesen!
 
-Mein Gebein zerfloss, in Liebe schmolz ich. Allerhöchstes Wesen !
+22\. Von mir abgelöst, ist ja mein teuer  
+Herz wie Wachs nun über hellem Feuer. Allerhöchstes Wesen!
 
-12. Vater, Ruh des Müden, Ungeduld' gen !
+23\. Warum schaust du weg? Mein tiefstes Wissen  
+Warf ich weg, dich zu erschaun beflissen. Allerhöchstes Wesen!
 
-„Preis, Preis” rufend, will ich stets nun huld'gen. Allerhöchstes Wesen !
+24\. Hast du suchend mich zum Knecht erhoben,  
+Bloss dass ich dich --- jammernd stets --- soll loben? Allerhöchstes Wesen!
 
-13. Schenk mir Durst'gem seligste Versenkung !
+25\. Mich verzehren meine Schmerzens-Zähren;  
+Wann wirst du mir wonnige gewähren? Allerhöchstes Wesen!
 
-Ich versinke ohne solche Schenkung. Allerhöchstes Wesen !
+26\. Fest an dir in stummer Andacht rank ich,  
+Und gleich mutterlosem Kind doch krank ich. Allerhöchstes Wesen!
 
-4. WonneGeschmack.
+27\. Wenn ich mich als frei und froh auch brüste,  
+Irr' ich doch noch immer in der Wüste. Allerhöchstes Wesen!
 
-1 4. Alles Denken wissend, mir entgegen
+28\. Wie ein Strohhalm, den ein Wirbel umdreht,  
+So dein Knecht, der in der Wüste umgeht. Allerhöchstes Wesen!
 
-Kamst du mich zu laben --Gnadenregen ! Allerhöchstes Wesen !
+29\. Und doch acht' ich nicht der Welt Gewalten,  
+Wenn sie nicht zu dir die Hände falten. Allerhöchstes Wesen!
 
-15. Nectar, der nie satt macht ! Freudenflut du !
+30\. Ihrem Kinde schenkt die Kuh Erbarmen,  
+Schenk, barmherzge Mutter, Huld mir Armen! Allerhöchstes Wesen!
 
-Tiefster Stille überschwenglich Gut du: Allerhöchstes Wesen !
+31\. Welches Unrechts ich auch immer schuldig,  
+Du hast Mutter-Art, bist sanft, geduldig. Allerhöchstes Wesen!
 
-16. Honigseim, der Dinge Kern durch fliessend
+Noch ein anderer Dichter darf hier nicht übergangen werden, Paddanattu-Püllai, der etwa im 17. Jahrhundert in Kāvēripatnam gelebt haben soll. Dr. Graul (Reise 4., 37) führt von ihm folgenden Ausspruch an: „Warum sich mit Asche schmücken, warum mit Wasser handtieren? Du verstehest nicht das Ende heil. Sohrift, wie man veränderten Gemütes soll geboren werden. Was helfen sieben Millionen hochgepriesener Gebetsformeln? Das heisst am Strome ohne Kenntniss der Furt umherirren.“
 
-Und mein eignes Innerstes durchsüsseud ! Allerhöchstes Wesen !
+Diesen Perlen aus der tamulischen Litteratur möge sich noch von demselben Übersetzer ein Lied Sivavākyers* anreihen:
 
-17. Perle du, Koralle, ächtsten Goldes
+_Preis des „inner Lichts“ gegen die religiösen „Werkler.“_
 
-Schönster Glanz, mein Geistes-Licht, mein holdes ! Allerhöchstes Wesen !
+1\. Millionen, Millionen, Millionen Menschen wohl  
+Sind verkümmert, sind verkümmert, sind verkümmert --- geisteshohl:  
+Laufend, laufend, laufend, laufend nach dem doch so nahen Licht,  
+Suchend, suchend, suchend, suchend --- und doch ewig findend nicht.
 
-18. Aug' .Gedanke, Paradieses-Baum du !
-
-Aetherstrahl und Wonnewunder-Traum du ! Allerhöchstes Wesen !
-
-5. Klage über innere Dürre.
-
-19. Tief eindringend, ward mein Geist ganz kraftlos,
-
-Dürrem Dorn gleich --und du lässt mich saftlos ! Allerhöchstes Wesen !
-
-20. Kann ich Wonnemeer ! in dir nicht schlürfen :
-
-Werd ich dann den Durst je löschen dürfen ? Allerhöchstes Wesen 1
-
-21. Ach, wann schweigt mein Schmerz auch nur ein wenig !
-
-Springt mir keine Freudenflut, mein König ! Allerhöchstes Wesen 1
-
-22. Von mir abgelöst, ist ja mein theuer
-
-Herz wie Wachs nun über hellem Feuer. Allerhöchstes Wesen !
-
-23. Warum schaust du weg ? Mein tiefstes Wissen
-
-Warf ich weg, dich zu erschaun beflissen. Allerhöchstes Wesen !
-
-24. Hast du suchend mich zum Knecht erhoben,
-
-Bloss dass ich dich--jammernd stets --soll loben ? Allerhöchstes Wesen !
-
-25. Mich verzehren meine Schmerzens-Zähren ;
-
-Wann wirst du mir wonnige gewähren ? Allerhöchstes Wesen !
-
-26. Fest an dir in stummer Andacht rank ich,
-
-Und gleich mutterlosem Kind doch krank ich. Allerhöchstes Wesen !
-
-27. Wenn ich mich als frei und froh auch brüste,
-
-Irr' ich doch noch immer in der Wüste. Allerhöchstes Wesen !
-
-28. Wie ein Strohhalm, den ein Wirbel umdreht,
-
-So dein Knecht, der in der Wüste umgeht. Allerhöchstes Wesen !
-
-29. Und doch acht' ich nicht der Welt Gewalten,
-
-Wenn sie nicht zu dir die Hände falten. Allerhöchstes Wesen !
-
-30. Ihrem Kinde schenkt die Kuh Erbarmen,
-
-Schenk, barmherzge Mutter, Huld mir Armen ! Allerhöchstes Wesen 1
-
-31. Welches Unrechts ich auch immer schuldig,
-
-Du hast Mutter-Art, bist sanft, geduldig. Allerhöchstes Wesen !
-
-Noch ein anderer Dichter darf hier nicht übergangen werden, Paddanattu-Ptillai, der etwa im 17. Jahrhundert in Kävgripatnam gelebt haben soll. Dr. Graul (Reise IV, 37) führt von ihm folgenden Ausspruch an: „Warum sich mit Asche schmücken, warum mit Wasser handthieren? Du verstehest nicht das Ende heil. Sohrift, wie man veränderten Gemüthes soll geboren werden. Was helfen sieben Millionen hochgepriesener Gebetsformeln ? Das heisst am Strome ohne Kepntniss der Furt umherirren.”
-
-Diesen Perlen aus der tamulischen Litteratur möge sich noch von demselben Uebersetzer ein Lied Sivaväkyer's* anreihen :
-
-Preis des „ inner Lichts" gegen die religiösen „ Werkler,”
-
-1. Millionen, Millionen, Millionen Menschen wohl
-
-Sind verkümmert, sind verkümmert, sind verkümmert --geisteehohl :
-
-Laufend, laufend, laufend, laufend nach dem doch so nahen Licht,
-
-Suchend, suchend, suchend, suchend--und doch ewig findend nicht.
-
-2. Schaubegierig fahrt und rennt ihr über Meer und Berg und Thal !
-
-Ist das nicht vermessnes Treiben, arme Thoren allzumal ?
-
-Wenn in Euch der stets erwüuschte Fuss des höchsten Herrn erglänzt,
-
+2\. Schaubegierig fahrt und rennt ihr über Meer und Berg und Tal!  
+Ist das nicht vermessnes Treiben, arme Toren allzumal?  
+Wenn _in Euch_ der stets erwünschte Fuss des höchsten Herrn erglänzt,  
 Dann mögt ihr den Urglanz schauen, den nicht Zeit noch Raum begränzt.
 
-3. O ihr Narren, die ihr laufet, sprechend: es ist fern, fern, fern !
+3\. O ihr Narren, die ihr laufet, sprechend: es ist fern, fern, fern!  
+Über Stadt und Land und Wüste schweift ihr nach dem höchsten Herrn,  
+Dessen Gegenwart die Erde und den Himmel ganz durchdringt?  
+Toren, in dem eignen Busen ihn zu schauen --- darnach ringt.
 
-Ueber Stadt und Land und Wüste schweift ihr nach dem höchsten
+*) Weil Sivavākyer sehr starke Sprache führt und selbst die Namen Siva und Vischnu nicht dulden will, so machen die Sivaitischen Pandārams Jagd auf dies Buch, und vernichten alle Exemplare, die in ihre Hände kommen. Als dies nicht helfen wollte, liess die Dharma sabha in Madras eine interpolirte und sehr verfälschte Ausgabe drucken, so dass nun grade das Gegenteil des ursprünglichen Sinnes herauskommt. In Folge dessen sind echte Exemplare sehr selten. Taylors Catalog. 3., 26.
 
-Herrn,
+---
 
-Dessen Gegenwart die Erde und den Himmel ganz durchdringt ?
+## Zweites Kapitel. --- Parābaravastu als materielles, versichtbartes Wesen._
 
-Thoren, in dem eignen Busen ihn zu schauen --darnach ringt.
+Nachdem diese Heiden das höchste göttliche Wesen nach seiner immateriellen Geistigkeit und eigentlichen Beschaffenheit mit ihrer Vernunft nicht begreifen können und dabei auch der Offenbarung göttlichen Worts ermangelt, oder solche doch nicht angenommen haben: so sind sie mit ihren Speculationen auf mancherlei Irrtümer verfallen und haben sich ganz fleischliche Begriffe und materielle Vorstellungen von solchem höchsten Wesen gebildet, unter dem Vorgeben, dass es nichts desto weniger auch eine sichtbare und materielle Gestalt haben müsse, solle es anders von seinen Geschöpfen gesehen, erkannt, angebetet und verehrt werden. Einige sagen auch, dass ein immaterielles Wesen keine materiellen Dinge schaffen könne. Daher ehe Gott, das höchste Wesen, etwas materielles zu schaffen angefangen, hätte er sich selbst in eine materielle Gestalt eingeführt.
 
-* Weil Sivavnkyer sehr starke Sprache führt und selbst die Namen Siva und Vischnu nicht dulden will, so machen die Sivaitischen Pandaranis Jagd auf dies Buch, uud vernichten alle Exemplare, die in ihre H finde kommen. Als dies nicht helfen wollte, Hess die Dharma sabha in Madras eine interpolirte und sehr verfälschte Ausgabe drucken, so dass nun grade das Gegentheil des ursprünglichen Sinne« herauskommt. In Folge dessen sind echte Exemplare sehr selten. Taylor's Catalog.
+Von solcher materiellen Gestalt des höchsten Wesens können sie sich zwar auch keinen rechten Begriff machen. Weil sie aber in der Natur sehen, dass alle lebendigen Geschöpfe aus der männlichen und weiblichen Kraft ihre Geburt haben: so schliessen sie von den Geschöpfen auf den Schöpfer und halten dafür, dass Gott das höchste Wesen, aus welchem alles geflossen, in sich selbst die männliche und weibliche Kraft sein müsse. Von diesem Satz gehen sie weiter und sagen, dass solches Wesen in sich die männliche Kraft von der weiblichen geschieden habe, bei welcher Ausgeburt sowohl die männliche als die weibliche Kraft in äusserlicher Gestalt ausgegangen sein soll, woraus sie dann den Ursprung aller Götter und aller Geschöpfe herleiten, wie unten ausführlicher wird berichtet werden. Hieraus sieht man, wie zwar diese Heiden eine starke Phantasie haben und über Gott mancherlei Vernunftschlüsse machen, dass sie aber gleichwohl in Ermanglung des himmlischen Lichts und der göttlichen Offenbarung auf thörichte Dinge verfallen sind und sich immer aus einem Irrtum in den andern verwickelt haben, bis sie endlich sich so weit in der Materie von den Göttern verirrt haben, dass sie nicht wissen, wie sie wiederum auf ihre ersten Begriffe vom Wesen aller Wesen zurückkommen sollen. Wobei denn der Teufel keinen Fleiss noch Mühe gespart, dass er das natürliche Licht bei solchen Leuten je mehr und mehr auslöschen und in dicke Finsterniss verwandeln möge, welches ihm so völlig gelungen ist, dass nur noch geringe Spuren von der Erkenntniss des göttlichen Wesens unter ihnen übrig sind.
 
-ZWEITES KAPITEL.
+Obschon sie nun aus Gott ein materielles Wesen gemacht haben, so wissen sie gleichwohl nicht, wie dessen Gestalt eigentlich beschaffen sei. Damit jedoch die äusserlichen Sinne etwas haben möchten, daran sie sich hierbei halten könnten, so stellen sie solches göttliche Wesen unter einem Bilde vor, das Mann und Weib zugleich ist und durch alle 14 Welten geht, damit anzeigend, dass es alles in allen erfülle und dass alles seine Geburt und Erhaltung von selbigem habe. Solche Figur malen sie mit 4 Händen, wie auch fast alle ihre Götter so abgebildet werden. In den zwei in die Höhe gereckten Händen hält sie mit den Fingern zwei Gewehre சங்கு (Schneckenmuschel, ein mus. Instrument) Sankha und சக்கரம் (Kreis, Rad, Discus) Chakra, welches Vischnus Gewehre sind, mit denen daher auch nur die விஷ்ட்ணுபத்திக்காரா் Vischnubhaktas oder Vaischnavas sie abbilden, indem sie zugleich ihr auch auf der Stirn das Zeichen திருநாமம் (திரு heilig, நாமம் Name) Tirunāma machen, mit welchem sie sich selbst zu bezeichnen pflegen. Die சிவபத்திக்காரா் Saivas aber malen solche Figur mit dem Gewehr und Zeichen Isvaras ab. Auf dem Haupt hat sie eine Krone, daneben Sonne und Mond steht. Die Farbe ihres Leibes ist grün. In den Ohren, um Hals, Hände und Füsse hat sie allerlei Schmuck von Perlen, Edelsteinen, Gold und Silber, wie sie auch sonst ihre Götter zu tragen pflegen. Auf den Achseln hat sie ein Tuch, das herunterhängt, mit einer grossen Schnur von allerlei Blumen. Auf beiden Seiten ist sie mit 12 Welten bekleidet, in welchen mancherlei gemalt ist. Die zwei übrigen Welten hat sie oben auf der Brust, da in der obersten Brahma mit 4 Häuptern und 4 Händen abgemalt ist, zur Linken steht seine Frau Sarasvati und zur Rechten Dēvēndra, der Götterkönig, als habe er etwas vorzubringen. In der andern Welt weiter hinunter ist Dēvēndra sitzend abgemalt mit 4 Händen, da einige Götter vor ihm stehen und etwas anzubringen haben, denn dies ist die Götterwelt Dēvalōka. Weiter herunter hat sie auf dem Leibe den Berg வைகுண்டம் Vaikuntha, worin Vischnu mit 4 Armen sitzend abgemalt ist und seine zwei Weiber bei sich hat, die இலட்சுமி Lakschmi zur Rechten und die பூமிதேவி Bhūmidēvi zur Linken, über seinem Haupt ragen lauter Schlangen hervor. Darauf kommt unten der Berg கைலாசம் Kailāsa, darauf Isvara residirt und sitzend mit 4 Armen abgemalt ist. Zur Rechten steht Nandikēsvara mit einem Ochsenkopf und zur Linken sitzt Isvaras Weib Pārvati. Auf beiden Seiten sind noch zwei துவாரபாலகா் (துவாரம் Öffnung, Thorweg; பாலகன் Beschützer, Wächter) Dvārapālakas. Über Isvara steht rechts Subhramanya mit dem Pfau und links Vighnēsvara mit dem Elephanten-Rüssel. Durch alle diese Welten und Örter geht der grosse Berg மகாமேரு Mahāmēru,* dessen Spitze oben über die Krone der ganzen Figur hervorragt. Unten wird der Berg von 8 Elephanten und 8 Schlangen getragen, die auf einer Schildkröte stehen, welche Vischnu selbst in seiner zweiten Verwandlung ist. Unten bei der Schildkröte ragen die Füsse der Figur des höchsten Wesens hervor, anzuzeigen, dass es alles in allen tragen muss. Rund um die Figur herum in dem äussern Kreis ist ein Abriss der 7 Meere und Inseln.
 
-Paräbaravastu als materielles, versichtbartes Wesen.
+*) Mēru, das Centrum unserer Erdinsel wird im hohen Norden gedacht, der indische Olymp, auf einem seiner 3 Gipfel ist das Paradies Kailāsa, die 7 Patriarchen sind von dorther gekommen. Die Gestalt des Berges ist gleich der Samenkapsel der heiligen Lotusblume.
 
-Nachdem diese Heiden das höchste göttliche Wesen nach seiner immateriellen Geistigkeit und eigentlichen Beschaffenheit mit ihrer Vernunft nicht begreifen können und dabei auch der Offenbarung göttlichen Worts ermangelt, oder solche doch nicht angenommen haben: so sind sie mit ihren Speculationen auf mancherlei Irrthtimer verfallen und haben sich ganz fleischliche Begriffe und materielle Vorstellungen von solchem höchsten Wesen gebildet, unter dem Vorgeben, dass es nichts desto weniger auch eine sichtbare und materielle Gestalt haben müsse, solle es anders von seinen Geschöpfen gesehen, erkannt, angebetet und verehrt werden. Einige Bagen auch, dass ein immaterielles Wesen keine materiellen Dinge schaffen könne. Daher ehe Gott, das höchste Wesen, etwas materielles zu schaffen angefangen, hätte er sich selbst in eine materielle Gestalt eingeftihrt.
+Solcher Gestalt präsentirt diese Figur vom göttlichen Wesen viele Dinge, die unter ihnen als grosse Geheimnisse angesehen werden und daher noch etwas näher zu erläutern sind. Die 14 Welten,* mit denen sie bekleidet ist, teilen sie in 7 Unter- und 7 Ober-Welten. Die Namen der Unterwelten sind: 1, அதலம் Atala 2, விதலம் Vitala 3, சுதலம் Sutala, 4, நிதலம் Nitala 5, தராதலம் Dharātala 6, மகாதலம் Mahātala 7, பாதாளம Pātāla. Unter diesen sieben Unterwelten (கீழுலகம்) ist die letzte und allerunterste am meisten zu merken, als die für die Hölle und den Ort der Verdammten gehalten wird. Und weil யம Yama der Gott der Todes und der König über die Verdammten ist, so wird sie auch யமலோகம் Yamalōka genannt. In den Poeten findet man gar viele Fabeln hiervon. Die 7 Oberwelten (மேனுலகம்) folgen also auf einander in die Höhe: 1, பூலோகம் Bhūlōka 2, புவா்லோகம் Bhuvarlōka 3, சுவா்லோகம் Svarlōka, 4, மகாலோகம் Mahālōka 5, சனலோகம் (சனகன் Vater; Residenz der Rischis) Janalōka, 6, தேவலோகம் Dēvalōka 7, சத்தியலோகம் (சத்தியம் Wahrheit) Satyalōka. Unter diesen ist die 1. 4. 6. und 7. wohl zu merken, als von welchen gar viele Historien in den alten Poeten gefunden werden. Die erste Welt Bhūlōka halten sie für die Welt, darinnen wir Menschen jetzt leben, die sie in ihrer Weite und Breite ganz anders beschreiben, als die europäischen Geographen. Die Historien, die darin mit den Göttern und Menschen vorgegangen sein sollen, haben die Poeten noch am allerwahrscheinlichsten vorgestellt. Die 4. Welt Mahālōka, von welcher sie viele Mährlein schreiben, soll Vischnus Residenz sein. In Dēvalōka, von der sie in Historienbüchern viel fabuliren, sollen die 330,000,000 Götter sein. Satyalōka wird von einigen für Brahmas Residenz gehalten und பிரமலோகம் Brahmalōka genannt, von andern als Sivas Residenz angesehen und daher சிவலோகம் Sivalōka genannt. Als die höchste Welt wird sie für den Ort der Seligen gehalten, sonst aber gedenken die Saivas auf den Berg Kailāsa als den Sitz Isvaras und die Vaischnavas auf den Berg Vaikuntha, in Vischnus Paradies zu kommen.
 
-Von solcher materiellen Gestalt des höchsten Wesens können sie sich zwar auch keinen rechten Begriff machen. Weil sie aber in der Natur sehen, dass alle lebendigen Geschöpfe aus der männlichen und weiblichen Kraft ihre Geburt haben: so schliessen sie von den Geschöpfen auf den Schöpfer und halten dafür, dass Gott das höchste Wesen, aus welchem alles geflossen, in sich selbst die männliche und weibliche Kraft sein müsse. Von diesem Satz gehen sie weiter und sagen, dass solches Wesen in sich die männliche Kraft von der weiblichen geschieden habe, bei welcher Ausgeburt sowohl die männliche als die weibliche Kraft in äusserlicher Gestalt ausgegangen sein soll, woraus sie dann den Ursprung aller Götter und aller Geschöpfe herleiten, wie unten ausführlicher wird berichtet werden. Hieraus sieht man, wie zwar diese Heiden eine starke Phantasie haben und über Gott mancherlei Vernunftschlüsse machen, dass sie aber gleichwohl in Ermanglung des himmlischen Lichts und der göttlichen Offenbarung auf thörichte Dinge verfallen sind und sich immer aus einem Irrthum in den andern verwickelt haben, bis sie endlich sich so weit in der Materie von den Göttern verirrt haben, dass sie nicht wissen, wie sie wiederum auf ihre ersten Begriffe vom Wesen aller Wesen zurückkommen sollen. Wobei denn der Teufel keinen Fleis3 noch Mühe gespart, dass er das natürliche Licht bei solchen Leuten je mehr und mehr auslöschen und in dicke Finsternias verwandeln möge, welches ihm so völlig gelungen ist, dass nur noch geringe Spuren von der Erkenntniss des göttlichen Wesens unter ihnen übrig sind.
-
-Obschon sie nun aus Gott ein materielles Wesen gemacht haben,.
-
-so wissen sie gleichwohl nicht, wie dessen Gestalt eigentlich beschaffen sei. Damit jedoch die äusserlichen Sinne etwas haben möchten, daran sie sich hierbei halten könnten, so stellen sie solches göttliche Wesen unter einem Bilde vor, das Mann und Weib zugleich ist und durch alle 14 Welten geht, damit anzeigend, dass es alles in allen erfülle und dass alles seine Geburt und Erhaltung von selbigem habe. Solche Figur malen sie mit 4 Händen, wie auch fast alle ihre Götter so abgebildet werden. In den zwei in die Höhe gereckten Händen hält sie mit den Fingern zwei Gewehre (Scbne-
-
-ckenmuschel, ein mus. Instrument) Sankha und eäanü> (Kreis, Rad, Discus) Chakra, welches Vischnu's Gewehre sind, mit denen daher auch nur die tSdf,Li^siußßdaira^ Vischnubhaktas oder Vaischnavas sie abbilden, indem sie zugleich ihr auch auf der Stirn das Zeichen ^0*/rtoü> ( heilig, Name) Tirunäma machen, mit welchem sie
-
-sich selbst zu bezeichnen pflegen. Die Giuupßdsiroir Saivas aber malen solche Figur mit dem Gewehr und Zeichen Isvara's ab. Auf dem Haupt hat sie eine Krone, daneben Sonne und Mond steht. Die Farbe ihres Leibes ist grün. In den Ohren, um Hals, Häude und Füsse hat sie allerlei Schmuck von Perlen, Edelsteinen, Gold und Silber, wie sie auch sonst ihre Götter zu tragen pflegen. Auf den Achseln hat sie ein Tuch, das herunterhängt, mit einer grossen Schnur von allerlei Blumen. Auf beiden Seiten ist sie mit 12 Welten bekleidet, in -welchen mancherlei gemalt ist. Die zwei übrigen Welten hat sie oben auf der Brust, da in der obersten Brahma mit 4 Häuptern und 4 Händen abgemalt ist, zur Linken steht seine Frau Sarasvati und zur Rechten Dgvgndra, der Götterkönig, als habe er etwas vorzubringen. In der andern Welt weiter hinunter ist Dfivgndra sitzend abgemalt mit 4 Händen, da einige Götter vor ihm stehen und etwas anzubringen haben, denn dies ist die Götterwelt Devalöka. Weiter herunter hat sie auf dem Leibe den Berg ea/gajri-ii Vaikuntha, worin Vischnu mit 4 Armen sitzend abgemalt ist und seine zwei Weiber bei sich hat, die gj»>iLsrLS Lakschmi zur Rechten und die y,d)CpeQ Bhümidevi zur Linken, über seinem Haupt ragen lauter Schlangen hervor. Darauf kommt unten der Berg <®a<s»/r.ru> Kailäsa, darauf Isvara residirt und sitzend mit 4 Armen abgemalt ist. Zur Rechten steht NandikSsvara mit einem Ochsenkopf und zur Linken sitzt Isvara's Weib Pärvati. Auf beiden Seiten sind noch zwei & eirguireosir ( gieunaüi Oeffnung, Thorweg; uirtoaea Beschützer, Wächter) Dvirapähikas. Ueber Isvara steht rechts Subhramanya mit dem Pfau und links Vighnesvara mit dem ElephantenRüssel. Durch alle diese Welten und Oerter geht der grosse Berg u>anQu>($ Mahämeru,* dessen Spitze
-
-* Märu, das Centrum unserer Erdinsel wird im hohen Norden gedacht, der indische Olymp, auf einem seiner 3 Gipfel ist das Paradies KailSsa, die 7 Patriarchen sind von dorther gekommen . Die Gestalt des Berges ist gleich der Samenkapsel •der heiligen Loiusbiume.
-
-oben über die Krone der ganzen Figur hervorragt. Ünten wird der Berg von 8 Elephanten und 8 Schlangen getragen, die auf einer Schildkröte stehen, welche Vischnu selbst in seiner zweiten Verwandlung ist. Unten bei der Schildkröte ragen die Ftisse der Figur des höchsten Wesens hervor, anzuzeigen, dass es alles in allen tragen muss. Rund um die Figur herum in dem äussern Kreis ist ein Abriss der 7 Meere und Inseln.
-
-Solcher Gestalt präsentirt diese Figur vom göttlichen Wesen viele Dinge, die unter ihnen als grosse Geheimnisse angesehen werden und daher noch etwas naher zu erläutern sind. Die 14 Welten,* mit denen sie bekleidet ist, theilen sie in 7 Unterund 7 Ober-Welten. Die Namen der Unterwelten sind: 1, j Atala 2, Vitala
-
-3, &£eoü> Sutala, 4, iSpeiiii Nitala 5, panpasw Dharätala 6,
-
-Mahätala 7, un/nrane Pätäla. Unter diesen sieben Unterwelten (3(if«üsü>) ist die letzte und allerunterste am meisten zu merken, als die für die Hölle und den Ort der Verdammten gehalten wird. Und ' weil i lud Yama der Gott der Todes und der König über die Verdammten ist, so wird sie auch lutoQcvirjiü Yamalöka genannt, ln den Poeten findet man gar viele Fabeln hiervon. Die 7 Oberwelten folgen also auf einander in die Höhe; 1, Bhülöka 2, t/«nic?e»/r*tö
-
-Bhuvarlöka 3, srtuifaeoirsth Svarlöka, 4, wairdeoiTsil Mahälöka 5, *af?eoirstj>. (&era&r Vater; Residenz der Rischis) Janalöka, 6, Qpe» Dgvalöka 7, *pßuGt>i>nsti> (e-pßiuü) Wahrheit) Satyalöka. Unter diesen ist die 1. 4. 6. und 7. wohl zu merken, als von welchen gar viele Historien in den alten Poeten gefunden werden. Die erste Welt Bltülöka halten eie für die Welt, darinnen wir Menschen jetzt leben, die sie in ihrer Weite und Breite ganz anders beschreiben, als die europäischen Geographen. * Die Historien, die darin mit den Göttern und Menschen vorgegangen sein sollen, haben die Poeten noch am allerwahrscheinlichsten vorgestellt. Die 4. Welt Mahälöka, von welcher sie viele Mährlein schreiten, soll Vischnu's Residenz sein. In Devolöka, von der sie in Historienbüchern viel fabuliren, sollen die 330,000,000 Götter sein. Satyalöka wird von einigen für Brahma's Residenz gehalten und AffuiGctnsü > Brahmalöka genannt, von andern als Siva's Residenz angesehen und daher @euGtotraü> Sivalöka genannt. Als die höchste Welt wird sie für den Ort der
-
-* Oft wird auch von drei Welten gesprochen, und dHrunter entweder Himmel, Erde. Holle odert Erde, Kimmei und der Zwischenraum zwischen beiden, die Aetlierregioo, verstanden. Die Namen der 6 ersten Unterwelten sind eine Zusammensetzung mit oder > Sthala. Platz, Erde. Reihenfolge und Namen wechseln, nur die drei ersten und die letzte sind constaut, Mahttala occupirt entweder den fi. oder 5. Platz, an die Stelle von Nitala oder Dhar.tala pflegt Rasitala zu treten. Die 6. Oberwelt, die Residenz der Vairägis, wird auch ^•Cm< iä oder (juti Busse) Tapal'ka genannt. Die 2., der Raum
-
-zwischen Erde und Sonne, ist Residenz der Siddhas und Manis. Die 3, zwischen Bonne und Polarstern, klingt zusammen mit Indra's Residenz Svarga.
-
-Seligen gehalten, sonst aber gedenken die Saivas auf den Berg Kniläsa als den Sitz Isvara's und die Vaisehnavas auf den Berg Vaikuntha, in Vischnu's Paradies zu kommen.
+*) Oft wird auch von drei Welten gesprochen, und darunter entweder Himmel, Erde, Hölle oder: Erde, Himmel und der Zwischenraum zwischen beiden, die Aetherregion, verstanden. Die Namen der 6 ersten Unterwelten sind eine Zusammensetzung mit தலம் oder ஸ்தலம் Sthala, Platz, Erde. Reihenfolge und Namen wechseln, nur die drei ersten und die letzte sind constant, Mahātala occupirt entweder den 6. oder 5. Platz, an die Stelle von Nitala oder Dharātala pflegt இாராதலம் Rasātala zu treten. Die 6. Oberwelt, die Residenz der Vairāgis, wird auch தபலோகம் oder தபோலோகம் (தபம் Busse) Tapalōka genannt. Die 2., der Raum zwischen Erde und Sonne, ist Residenz der Siddhas und Mūnis. Die 3., zwischen Sonne und Polarstern, klingt zusammen mit Indras Residenz Svarga.
 
 Alle 14 Welten haben einerlei Länge und Breite, die Länge beschreiben sie auf 50,000,000,000,000,000 und die Breite auf 25,000,000,000,000,000 Meilen. Wenn man nun alle 14 Welten zusammenrechnet, so kommt eine ungemeine Summe der Meilen heraus. Der Berg MahämSru, der durch nlle 14 Welten hindnrchgeht, soll in der Höhe und Breite 1,600,000,000,000 Meilen haben, aber alle diese Meilen sind mit der Götter Mess-stab abgemessen. Die sieben Meere beschreiben sie gleichfalls als von unermesslicher Grösse und benennen sie, wie folgt: I, gfiwaienr&QfpßirLo Lavana-Samudra (rQppßnüz die See), das Salzmeer. 2, 6=rrä&mD&(y)psßoü> Sarkara, Zuckersaftmeer. 3, puSi*Qp / ißnü) Tayir, Schlickermilchoder Rahmmeer. 4, Qn<vf(y>ßßaü> Ney, Buttermeer. 5, Gfieir&Qpßßaü} Ten, Honigmeer. 6, uirev&Qpßfiaij) Pal, Milchmeer. 7, n wtupmelrir&Qpßßoü) Nallatannir, Süsswassermeer.* Ausser diesen haben sie noch viele grosse Berge, Inseln und Erdreiche, die nach Grösse und Einwohnern in dem Buche ßtisirai&e&auni Trikälaehakra (Dreizeiten -Kreis, Chronologie) beschrieben stehen, f worin auch das vorhergehende und viele andere seltsame Dinge enthalten sind.
 
