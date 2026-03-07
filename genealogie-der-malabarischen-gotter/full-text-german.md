@@ -32,13 +32,13 @@
 
 # [Tabelle.](#tabelle-1)
 
-## [A.]()
+## [A.](#a-1)
 
-## [B.]()
+## [B.](#b-1)
 
-## [C.]()
+## [C.](#c-1)
 
-## [D.]()
+## [D.](#d-1)
 
 # [Erster Teil vom பராபரவஸ்து Parābaravastu.](#erster-teil-vom-பராபரவஸ்து-parābaravastu-1)
 
@@ -46,7 +46,7 @@
 
 ## [Zweites Kapitel. --- Parābaravastu als materielles, versichtbartes Wesen.](#zweites-kapitel-----parābaravastu-als-materielles-versichtbartes-wesen-1)
 
-## [Drittes Kapitel. --- Siva als männliche Kraft aus Parābaravastu entstanden.]()
+## [Drittes Kapitel. --- Siva als männliche Kraft aus Parābaravastu entstanden.](#drittes-kapitel-----siva-als-männliche-kraft-aus-parābaravastu-entstanden-1)
 
 ---
 
