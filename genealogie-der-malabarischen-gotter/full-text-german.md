@@ -44,7 +44,7 @@
 
 ## [Erstes Kapitel. --- Parābaravastu als immateriell, gestaltlos und unvergleichbar.](#erstes-kapitel-----parābaravastu-als-immateriell-gestaltlos-und-unvergleichbar-1)
 
-## [Zweites Kapitel. --- Parābaravastu als materielles, versichtbartes Wesen.]()
+## [Zweites Kapitel. --- Parābaravastu als materielles, versichtbartes Wesen.](#zweites-kapitel-----parābaravastu-als-materielles-versichtbartes-wesen-1)
 
 ## [Drittes Kapitel. --- Siva als männliche Kraft aus Parābaravastu entstanden.]()
 
@@ -147,9 +147,11 @@ Königlich Dänische Missionarii.
 
 # Tabelle.
 
-## Die ganze Genealogie der malabarischen Götter teilt sich in 4 Hauptteile:
+**Die ganze Genealogie der malabarischen Götter teilt sich in 4 Hauptteile:**
 
-A\. _பராபரவஸ்து Parābaravastu, das Ens (வஸ்து) supremum oder das höchste göttliche Wesen, das betrachtet wird:_
+## A\.
+
+_பராபரவஸ்து Parābaravastu, das Ens (வஸ்து) supremum oder das höchste göttliche Wesen, das betrachtet wird:_
 
 1\. Als ein immaterielles Wesen, das keine Gestalt hat und mit nichts verglichen werden kann, welches weder Anfang noch Ende hat und der Ursprung aller Dinge ist, aus welchem alles geflossen und in welches alles wiederum einfliessen wird, von welchem alle Götter abhängen und das da alles in allen und der einige Gott ist.
 
@@ -163,7 +165,9 @@ A\. _பராபரவஸ்து Parābaravastu, das Ens (வஸ்து) su
 
 2\. _சத்தி Sakti_, (Kraft, Energie) die aus der weiblichen Kraft entstanden ist und für die Mutter aller Ausgeburten gehalten wird. Von ihrer Linie kommen alle Göttinnen her, gleichwie von Siva's Linie alle Götter. Sie wird பராசத்தி Parāsakti genannt, welches so viel bedeutet als die allerhöchste Sakti, mit welchem Namen sie von den andern Göttinnen unterschieden wird, die zwar auch den Namen Sakti führen, aber alle von ihr entsprungen sind und von ihr abhängen, darunter sonderlich neun vornehme sind, die deshalb auch Nava Sakti genannt werden.
 
-B\. _மும்மூா்த்திகள் Mummūrtigel die drei grössten Götter_ (die drei Gestalten, mūrtti das griechische morphae), die von Siva entsprungen und in welchen Siva mitenthalten ist. Einige halten sie für eins und für das höchste Wesen selbst. Einige erwählen unter ihnen nur einen, den sie zum höchsten Gott setzen. Man hat unter diesen Mummūrtigel zu betrachten:
+## B\.
+
+_மும்மூா்த்திகள் Mummūrtigel die drei grössten Götter_ (die drei Gestalten, mūrtti das griechische morphae), die von Siva entsprungen und in welchen Siva mitenthalten ist. Einige halten sie für eins und für das höchste Wesen selbst. Einige erwählen unter ihnen nur einen, den sie zum höchsten Gott setzen. Man hat unter diesen Mummūrtigel zu betrachten:
 
 1\. _இசுரன் Isvara_ (Herr), unter welchem Siva mit verstanden wird und von welchem die grosse Religion, சிவமதம் Siva-matha (மதம் Schule, Kloster, dann Religionspartei) genannt, herkommt. Alle, die solcher Religion zugetan sind, halten Isvara für den höchsten Gott, dem zu Ehren sie allenthalben Pagoden aufgebaut haben und viele Feste halten. Sie erzählen von ihm 1008 Erscheinungen, nach welchen er 1008 unterschiedliche Namen bekommen und heisst an einem Orte so und an einem andern anders. Sein Paradies, da er residirt, heisst கைலாசம் Kailāsa, die vornehmsten Bedienten, die stets um ihn sind und deren Figuren mit in seinen Pagoden stehen, heissen நந்திகேசுரன் Nandikēsvara, குண்டோதரன் ein Bhūta Kundōdara (Rundbauch), தண்டேசுரன் Tandēsvara, துவாரபாலகா் Dvārapālakas, வயிரவன் Bhairava, அறுபத்துமூவா் Arupattumūver, d. i. 63 Personen, die Isvara mit Leib und Seel sichtbarer Weise in die Seligkeit aufgenommen haben soll (Tandēsvara ist einer aus ihrer Zahl). Bei der Familie Isvara's hat man zu beachten:
 
@@ -209,7 +213,9 @@ c\. _இலவன் Lava_, ein angenommener Sohn, welchen der Prophet வால
 
 *) Brahmā hat eine Pagode zu Pokher in Ajmir und Bithūr im Duab, wo er eine Pinne seines Pantoffels zurückgelassen, welches Ereigniss durch ein grosses Fest am Vollmonddes Monats Agrahāyana (Nov.-Dec.) gefeiert wird. Wils. Hindu Sects p. 18.
 
-C\. _கிராமதேவதைகள்_ (கிராமம் Dorf) _Grāmadēvatas_, welches solche Götter und Göttinnen sind, die da in Feldern, Städten, Flecken und Dörfern Hut halten, dass die Teufel und schädliche Riesen den Menschen keinen Schaden zufügen sollen, wie sie denn auch um keiner andern Ursache willen von diesen Heiden verehrt werden, als dass sie vor Bösem sie schützen sollen. Sie haben allenthalben Pagoden und jährliche Feste. Ihnen werden 4 Arten lebendiger Tiere geopfert als Büffel, Schweine, Böcke und Hähne. Sie sollen vorher in grosser Seligkeit gestanden haben und nachmals wegen ihrer Hoffahrt von Siva verflucht und in diese Welt zu den Teufeln verstossen worden sein, unter welchen sie als Könige und Königinnen herrschen. Die Weibspersonen kommen alle von der Saktilinie her und sind die neun vornehmen Saktis, Nava Sakti, die wir oben als von der Parāsakti entsprungen erwähnt haben. Sie sind gleichsam die Obersten unter den Teufeln, werden meistenteils ganz scheusslich abgebildet und bekommen Opfer und Feste, damit sie den Menschen kein Übels tun, sondern sie wider die Teufel schützen sollen. Solcher Gestalt sind in diesem Teile zu behandeln.
+## C\.
+
+_கிராமதேவதைகள்_ (கிராமம் Dorf) _Grāmadēvatas_, welches solche Götter und Göttinnen sind, die da in Feldern, Städten, Flecken und Dörfern Hut halten, dass die Teufel und schädliche Riesen den Menschen keinen Schaden zufügen sollen, wie sie denn auch um keiner andern Ursache willen von diesen Heiden verehrt werden, als dass sie vor Bösem sie schützen sollen. Sie haben allenthalben Pagoden und jährliche Feste. Ihnen werden 4 Arten lebendiger Tiere geopfert als Büffel, Schweine, Böcke und Hähne. Sie sollen vorher in grosser Seligkeit gestanden haben und nachmals wegen ihrer Hoffahrt von Siva verflucht und in diese Welt zu den Teufeln verstossen worden sein, unter welchen sie als Könige und Königinnen herrschen. Die Weibspersonen kommen alle von der Saktilinie her und sind die neun vornehmen Saktis, Nava Sakti, die wir oben als von der Parāsakti entsprungen erwähnt haben. Sie sind gleichsam die Obersten unter den Teufeln, werden meistenteils ganz scheusslich abgebildet und bekommen Opfer und Feste, damit sie den Menschen kein Übels tun, sondern sie wider die Teufel schützen sollen. Solcher Gestalt sind in diesem Teile zu behandeln.
 
 1\. _Die Schutzgottheiten:_
 
@@ -241,7 +247,9 @@ C\. _கிராமதேவதைகள்_ (கிராமம் Dorf) _Grā
 
 4\. _அசுரன்_ (அ nicht, சுரன் Gott) _Asuras_, eine andre Art Riesen, die von கூரன் (Held) Sūra herkommen, der da ein König über alle 14 Welten gewesen und mit seinem Riesengeschlecht die Götter sehr geplagt und sie zu Sclaven gemacht hat.
 
-D\. _தேவா்கள் Dēvas, eine Art Untergötter_, die in der Welt தேவலோகம் Dēvalōka sich aufhalten und hier auf Erden weder Pagoden noch Gottesdienst haben, ohne nur dass ihrer vielfältig in den Historienbüchern gedacht wird und man auch bei den Opfern der oben gedachten Götter und Göttinnen einige Ceremonien für sie macht. Zu ihrer Zahl werden auch die Personen gerechnet, die zwar nicht den Namen Götter führen, aber doch vielfältig in ihren Historienbüchern vorkommen und unter ihnen in hoher Achtung sind. Allhier hat man zu beachten:
+## D\.
+
+_தேவா்கள் Dēvas, eine Art Untergötter_, die in der Welt தேவலோகம் Dēvalōka sich aufhalten und hier auf Erden weder Pagoden noch Gottesdienst haben, ohne nur dass ihrer vielfältig in den Historienbüchern gedacht wird und man auch bei den Opfern der oben gedachten Götter und Göttinnen einige Ceremonien für sie macht. Zu ihrer Zahl werden auch die Personen gerechnet, die zwar nicht den Namen Götter führen, aber doch vielfältig in ihren Historienbüchern vorkommen und unter ihnen in hoher Achtung sind. Allhier hat man zu beachten:
 
 1\. _முப்பத்துமுக்கோடி தேவா்கள்_ (கோடி 10,000,000) _Muppattumukkōdi Dēvas_, welches 330,000,000 Götter* sind, die da von den oben gemeldeten Göttern ganz unterschieden und von Gott zu Einwohnern derjenigen Welt, die Dēvalōka heisst, erschaffen worden. Sie schreiben ihnen Leiber und Weiber zu, wie auch allen andern Göttern. Sie haben sie aber nicht mit Namen benannt, daher nur einige unter ihnen sonderlich zu merken sind:
 
@@ -439,7 +447,7 @@ Toren, in dem eignen Busen ihn zu schauen --- darnach ringt.
 
 ---
 
-## Zweites Kapitel. --- Parābaravastu als materielles, versichtbartes Wesen._
+## Zweites Kapitel. --- Parābaravastu als materielles, versichtbartes Wesen.
 
 Nachdem diese Heiden das höchste göttliche Wesen nach seiner immateriellen Geistigkeit und eigentlichen Beschaffenheit mit ihrer Vernunft nicht begreifen können und dabei auch der Offenbarung göttlichen Worts ermangelt, oder solche doch nicht angenommen haben: so sind sie mit ihren Speculationen auf mancherlei Irrtümer verfallen und haben sich ganz fleischliche Begriffe und materielle Vorstellungen von solchem höchsten Wesen gebildet, unter dem Vorgeben, dass es nichts desto weniger auch eine sichtbare und materielle Gestalt haben müsse, solle es anders von seinen Geschöpfen gesehen, erkannt, angebetet und verehrt werden. Einige sagen auch, dass ein immaterielles Wesen keine materiellen Dinge schaffen könne. Daher ehe Gott, das höchste Wesen, etwas materielles zu schaffen angefangen, hätte er sich selbst in eine materielle Gestalt eingeführt.
 
