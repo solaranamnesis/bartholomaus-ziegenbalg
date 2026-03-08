@@ -48,7 +48,7 @@
 
 ## [Drittes Kapitel. --- Siva als männliche Kraft aus Parābaravastu entstanden.](#drittes-kapitel-----siva-als-männliche-kraft-aus-parābaravastu-entstanden-1)
 
-## [Viertes Kapitel. --- Sakti, als weibliche Kraft aus dem göttlichen Wesen entstanden.]()
+## [Viertes Kapitel. --- Sakti, als weibliche Kraft aus dem göttlichen Wesen entstanden.](#viertes-kapitel-----sakti-als-weibliche-kraft-aus-dem-göttlichen-wesen-entstanden-1)
 
 ---
 
