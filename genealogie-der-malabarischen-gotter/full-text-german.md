@@ -50,9 +50,9 @@
 
 ## [Viertes Kapitel. --- Sakti, als weibliche Kraft aus dem göttlichen Wesen entstanden.](#viertes-kapitel-----sakti-als-weibliche-kraft-aus-dem-göttlichen-wesen-entstanden-1)
 
-# [Zweiter Teil. --- Die மும்மூர்த்திகள் Mummūrtis.]()
+# [Zweiter Teil. --- Die மும்மூர்த்திகள் Mummūrtis.](#zweiter-teil-----die-மும்மூர்த்திகள்-mummūrtis-1)
 
-## [Erstes Kapitel. --- Isvara, der Herr.]()
+## [Erstes Kapitel. --- Isvara, der Herr.](#erstes-kapitel-----isvara-der-herr-1)
 
 ---
 
