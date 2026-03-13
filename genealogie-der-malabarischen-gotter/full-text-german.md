@@ -30,7 +30,7 @@
 
 # [Vorrede der Verfasser.](#vorrede-der-verfasser-1)
 
-# [Tabelle.](#tabelle-1)
+# [Tabelle. --- Die ganze Genealogie der malabarischen Götter teilt sich in 4 Hauptteile.]()
 
 ## [A.](#a-1)
 
@@ -153,9 +153,7 @@ zu Gebet und Liebe verbundene
 
 Königlich Dänische Missionarii.
 
-# Tabelle.
-
-**Die ganze Genealogie der malabarischen Götter teilt sich in 4 Hauptteile:**
+# Tabelle. --- Die ganze Genealogie der malabarischen Götter teilt sich in 4 Hauptteile.
 
 ## A\.
 
