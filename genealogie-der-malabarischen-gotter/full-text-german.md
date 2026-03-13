@@ -54,7 +54,7 @@
 
 ## [Erstes Kapitel. --- Isvara, der Herr.](#erstes-kapitel-----isvara-der-herr-1)
 
-## [Zweites Kapitel. --- Von Isvaras zwei Weiber: Pārvati und Ganga.]()
+## [Zweites Kapitel. --- Von Isvaras zwei Weiber: Pārvati und Ganga.](#zweites-kapitel-----von-isvaras-zwei-weiber-pārvati-und-ganga-1)
 
 ---
 
