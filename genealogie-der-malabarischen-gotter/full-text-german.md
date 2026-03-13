@@ -30,7 +30,7 @@
 
 # [Vorrede der Verfasser.](#vorrede-der-verfasser-1)
 
-# [Tabelle. --- Die ganze Genealogie der malabarischen Götter teilt sich in 4 Hauptteile.]()
+# [Tabelle. --- Die ganze Genealogie der malabarischen Götter teilt sich in 4 Hauptteile.](#tabelle-----die-ganze-genealogie-der-malabarischen-götter-teilt-sich-in-4-hauptteile-1)
 
 ## [A.](#a-1)
 
